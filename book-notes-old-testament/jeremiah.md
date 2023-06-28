@@ -91,6 +91,6 @@ The book of Jeremiah is connected to other prophetic books, such as Isaiah, Ezek
 2. Ask God to reveal areas of sin and disobedience in our lives, and grant us the grace to repent and turn back to Him.
 3. Pray for strength, courage, and perseverance in the face of opposition, just as Jeremiah displayed throughout his prophetic ministry.
 
-### A Word of Encouragement
+### Conclusion
 
 In the book of Jeremiah, we witness the faithfulness of God amidst a nation's rebellion and the challenges faced by His chosen prophet. Despite the impending judgment, God offers hope, restoration, and a future to His people. In our own lives, let us trust in God's faithfulness, seek His guidance, and hold onto the promises of hope and redemption found in His Word.

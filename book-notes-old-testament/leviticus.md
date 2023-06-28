@@ -89,6 +89,6 @@ Leviticus connects with the previous book, Exodus, as it continues the narrative
 2. Ask for forgiveness for our sins and gratitude for the ultimate sacrifice of Jesus Christ.
 3. Pray for wisdom to apply the ethical guidelines and principles of justice and compassion in our daily lives.
 
-### A Word of Encouragement
+### Conclusion
 
 Through the Book of Leviticus, we are reminded of the importance of holiness and purity in our walk with God. As we seek to live a life pleasing to Him, let us remember that Jesus Christ has become our ultimate sacrifice and high priest. May His atoning work inspire us to approach God with reverence and gratitude, knowing that He is faithful to forgive and cleanse us.

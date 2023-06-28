@@ -88,6 +88,6 @@ Ecclesiastes shares thematic connections with other wisdom literature in the Bib
 2. Ask God for wisdom to find meaning and fulfillment in Him alone, rather than relying on material possessions or achievements.
 3. Pray for contentment in all circumstances, trusting in God's provision and guidance, and finding joy in the simple pleasures of life.
 
-### A Word of Encouragement
+### Conclusion
 
 In the midst of life's uncertainties and questions, Ecclesiastes reminds us to seek true meaning and fulfillment in God. As we recognize the limitations of worldly pursuits and embrace a proper perspective, we can find contentment, joy, and purpose in living for Him. Let us trust in God's wisdom, live in obedience to His commandments, and find peace in knowing that our lives have eternal significance when lived in relationship with Him.

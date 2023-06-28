@@ -2,7 +2,7 @@
 
 ### Introduction
 
-The Book of Joshua, located in the Old Testament of the Bible, serves as the sixth book of the Bible and follows the events described in the Book of Deuteronomy. It recounts the story of Joshua, who succeeds Moses as the leader of the Israelites, and documents the conquest and division of the Promised Land. The book highlights the faithfulness of God in fulfilling His promises and the importance of obedience and trust in Him.
+The Book of Joshua recounts the story of Joshua, who succeeds Moses as the leader of the Israelites and documents the conquest and division of the Promised Land. The book highlights the faithfulness of God in fulfilling His promises and the importance of obedience and trust in Him.
 
 ### Statistics
 
@@ -65,7 +65,7 @@ to be Memorized
 
 ### Relation to Other Books of the Bible
 
-The Book of Joshua serves as a continuation of the narrative begun in the Book of Deuteronomy. It connects the events of the Exodus, wilderness wanderings, and the covenant renewal with the conquest and settlement of the Promised Land. It bridges the gap between the Pentateuch (the first five books of the Bible) and the historical books that follow, such as Judges and Samuel.
+The Book of Joshua serves as a continuation of the narrative begun in the Book of Deuteronomy. It connects the events of the Exodus, wilderness wanderings, and covenant renewal with the conquest and settlement of the Promised Land. It bridges the gap between the Pentateuch (the first five books of the Bible) and the historical books that follow, such as Judges and Samuel.
 
 ### Life Application Lessons
 
@@ -89,6 +89,6 @@ The Book of Joshua serves as a continuation of the narrative begun in the Book o
 2. Seek God's guidance in making decisions and discerning His will.
 3. Give thanks for God's faithfulness and ask for the grace to remain faithful and committed to serving Him.
 
-### A Word of Encouragement
+### Conclusion
 
 As we study the Book of Joshua, let us be encouraged by the faith and obedience of Joshua and the Israelites. Just as God was with them in their conquest of the Promised Land, He is with us today. Let us trust in His promises, seek His guidance, and remain steadfast in our commitment to serve and follow Him.

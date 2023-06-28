@@ -50,9 +50,8 @@ The event that inspires the writing of the Book of Ezra is the return of the Isr
 ### Major Characters
 
 1. Zerubbabel - A descendant of David who leads the first wave of exiles back to Jerusalem and oversees the rebuilding of the temple (Ezra 1-6).
-2. Ezra - A priest and scribe who leads the second wave of exiles back to Jerusalem and plays a significant role
-
-in teaching the Law and implementing reforms (Ezra 7-10). 3. Artaxerxes - The Persian king who authorizes Ezra's return and supports the restoration efforts in Jerusalem (Ezra 7-10).
+2. Ezra - A priest and scribe who leads the second wave of exiles back to Jerusalem and plays a significant role in teaching the Law and implementing reforms (Ezra 7-10).&#x20;
+3. Artaxerxes - The Persian king who authorizes Ezra's return and supports the restoration efforts in Jerusalem (Ezra 7-10).
 
 ### Key Verses to be Memorized
 
@@ -86,6 +85,6 @@ The Book of Ezra is closely connected to the Book of Nehemiah, which continues t
 2. Ask for God's guidance and support in fulfilling the work He has called you to do, just as He strengthened the hands of the returnees.
 3. Pray for spiritual leaders and teachers to be filled with wisdom and knowledge to guide God's people in obedience and devotion.
 
-### A Word of Encouragement
+### Conclusion
 
 The Book of Ezra reminds us that God is faithful to fulfill His promises and restore His people. As we seek Him wholeheartedly, align our lives with His Word, and separate ourselves from worldly influences, He will guide and strengthen us in our journey of faith. Let us find joy in obeying His commands and experience His blessings as we worship and serve Him alone.

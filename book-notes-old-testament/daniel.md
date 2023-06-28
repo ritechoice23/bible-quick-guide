@@ -87,6 +87,6 @@ The book of Ezekiel is connected to other prophetic books, such as Jeremiah and 
 2. Intercede for those who are living in rebellion and disobedience, asking God to bring them to repentance and restoration.
 3. Pray for the fulfillment of God's promises of restoration and renewal for His people, both individually and collectively.
 
-### A Word of Encouragement
+### Conclusion
 
 In the book of Ezekiel, we see God's heart for His people, even in times of judgment and exile. He desires to bring restoration, renewal, and transformation. Despite the challenges and hardships we may face, we can find hope in knowing that God is sovereign, faithful, and committed to the restoration of His people. Let us trust in His plans and seek His righteousness, knowing that He is at work even in the midst of difficult circumstances.

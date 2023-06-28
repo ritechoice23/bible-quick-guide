@@ -2,7 +2,7 @@
 
 ### Introduction
 
-The Book of Numbers, found in the Old Testament of the Bible, continues the narrative of the Israelites' journey from Mount Sinai to the edge of the Promised Land. This book documents the wilderness wanderings, the census of the Israelites, and various laws and regulations given by God. It reveals God's faithfulness, the consequences of disobedience, and the importance of trust and obedience in our journey of faith.
+The Book of Numbers, found in the Old Testament of the Bible, continues the narrative of the Israelites' journey from Mount Sinai to the edge of the Promised Land. This book documents wilderness wanderings, the census of the Israelites, and various laws and regulations given by God. It reveals God's faithfulness, the consequences of disobedience, and the importance of trust and obedience in our journey of faith.
 
 ### Statistics
 
@@ -89,6 +89,6 @@ Numbers serves as a continuation of the Exodus narrative, showing the journey an
 2. Seek forgiveness for grumbling and complaining, asking for a grateful heart and contentment in all circumstances.
 3. Pray for proper leadership within the church and that believers would submit to God-ordained authority and support one another.
 
-### Word of Encouragement
+### Conclusion
 
 Amidst our wilderness experiences and challenges, we can find encouragement in the Book of Numbers. God's faithfulness endures, even in the face of our failures and doubts. Let us trust in His promises, obey His commands, and find hope in His abiding presence. Remember, the glory of the Lord will fill the earth, and His faithfulness will never waver.

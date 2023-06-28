@@ -88,6 +88,6 @@ Lamentations is connected to the book of Jeremiah, as it reflects and amplifies 
 2. Ask God to reveal any areas of sin and disobedience in your life and grant you the grace to repent and seek His forgiveness.
 3. Pray for restoration, both individually and collectively, in relationships, communities, and nations affected by brokenness and devastation.
 
-### A Word of Encouragement
+### Conclusion
 
 In the midst of our darkest moments and deepest sorrows, Lamentations reminds us to pour out our hearts before God. It teaches us that it is okay to lament and express our grief, knowing that God hears our cries and remains faithful even in the midst of suffering. May we find comfort in God's steadfast love and hold onto the hope of restoration and renewal that He promises.

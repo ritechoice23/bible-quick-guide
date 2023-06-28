@@ -28,7 +28,7 @@ The Book of Nehemiah does not explicitly mention the author, but traditionally, 
 
 ### About the Author
 
-Nehemiah, the author and main character of the Book of Nehemiah, was a Jewish exile serving as a cupbearer to King Artaxerxes in Persia. He had a deep love for his homeland and a burden to see Jerusalem restored. Upon hearing about the state of the city, Nehemiah sought permission from the king to return and lead the rebuilding efforts. He displayed strong leadership skills, unwavering faith, and a fervent prayer life. Nehemiah's dedication to God and his people resulted in the successful completion of the walls of Jerusalem and the spiritual renewal of the community.
+Nehemiah, the author and main character of the Book of Nehemiah was a Jewish exile serving as a cupbearer to King Artaxerxes in Persia. He had a deep love for his homeland and a burden to see Jerusalem restored. Upon hearing about the state of the city, Nehemiah sought permission from the king to return and lead the rebuilding efforts. He displayed strong leadership skills, unwavering faith, and a fervent prayer life. Nehemiah's dedication to God and his people resulted in the successful completion of the walls of Jerusalem and the spiritual renewal of the community.
 
 ### Historical Context
 
@@ -36,7 +36,7 @@ The Book of Nehemiah is set during the period of Jewish history when the Israeli
 
 ### Cultural Context
 
-Nehemiah reflects the cultural context of the Jewish people as they returned from exile. It emphasizes the importance of rebuilding the walls of Jerusalem as a means of protection, restoring the city's spiritual and social order, and establishing its identity as the holy city. The book also addresses issues such as social injustice, intermarriage with foreign nations, and the observance of Sabbath and other religious practices.
+Nehemiah reflects the cultural context of the Jewish people as they returned from exile. It emphasizes the importance of rebuilding the walls of Jerusalem as a means of protection, restoring the city's spiritual and social order, and establishing its identity as a holy city. The book also addresses issues such as social injustice, intermarriage with foreign nations, and the observance of the Sabbath and other religious practices.
 
 ### The Event that Inspires the Writing of the Book
 
@@ -50,9 +50,11 @@ The event that inspires the writing of the Book of Nehemiah is Nehemiah's journe
 
 ### Major Characters
 
-1. Nehemiah - A Jewish exile and cupbearer to King Artaxerxes who leads the rebuilding of Jerusalem's walls
-
-and initiates spiritual renewal. 2. Artaxerxes - The Persian king who grants Nehemiah permission to return to Jerusalem and provides support for the restoration efforts. 3. Sanballat - An influential figure who opposes Nehemiah's efforts and tries to hinder the rebuilding of the walls. 4. Ezra - A priest and scribe who plays a significant role in the spiritual revival and the reading of the Law. 5. Eliashib - The high priest who supports Nehemiah's reforms and helps rebuild the city's gates.
+1. Nehemiah - A Jewish exile and cupbearer to King Artaxerxes who leads the rebuilding of Jerusalem's walls and initiates spiritual renewal.&#x20;
+2. Artaxerxes - The Persian king who grants Nehemiah permission to return to Jerusalem and provides support for the restoration efforts.&#x20;
+3. Sanballat - An influential figure who opposes Nehemiah's efforts and tries to hinder the rebuilding of the walls.&#x20;
+4. Ezra - A priest and scribe who plays a significant role in the spiritual revival and the reading of the Law.&#x20;
+5. Eliashib - The high priest who supports Nehemiah's reforms and helps rebuild the city's gates.
 
 ### Key Verses to be Memorized
 
@@ -86,6 +88,6 @@ The Book of Nehemiah is closely related to the Book of Ezra, as they both deal w
 2. Ask God to give you a heart of compassion and action for the needs of others.
 3. Pray for perseverance and strength in the face of opposition, trusting in God's faithfulness and provision.
 
-### A Word of Encouragement
+### Conclusion
 
 The Book of Nehemiah reminds us that with God's guidance and strength, we can overcome challenges and accomplish great things for His kingdom. Just as Nehemiah led the rebuilding of the walls, God can use us to bring restoration and renewal to our communities. Let us be people of prayer, unity, and perseverance, trusting in God's faithfulness to provide and bless our efforts.

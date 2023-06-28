@@ -80,6 +80,6 @@ the prodigal son in Luke 15.
 2. Ask for a deeper understanding of God's unfailing love and faithfulness.
 3. Pray for a heart of compassion and justice, that you may reflect God's character in your relationships and interactions with others.
 
-### Word of Encouragement
+### Conclusion
 
 In a world filled with brokenness and unfaithfulness, the Book of Hosea reminds us of God's relentless love and His desire to restore us. No matter how far we have strayed, God invites us to return to Him, offering forgiveness, healing, and a renewed relationship. Trust in His faithfulness and allow Him to redeem and transform your life. He is faithful to fulfill His promises and bring restoration to every area of your life.

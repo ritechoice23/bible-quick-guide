@@ -90,8 +90,8 @@ The Book of Esther does not directly reference other biblical books, and it stan
 
 1. Pray for courage and discernment to stand up for righteousness and protect those who are oppressed.
 2. Ask God to provide wisdom and guidance for leaders in positions of influence and authority.
-3. Pray for the preservation and safety of the Jewish people worldwide, and for the peace and prosperity of Israel.
+3. Pray for the preservation and safety of the Jewish people worldwide and for the peace and prosperity of Israel.
 
-### A Word of Encouragement
+### Conclusion
 
 The story of Esther reminds us that even in the most challenging and seemingly hopeless situations, God is at work behind the scenes, orchestrating events for His purposes. He can use ordinary individuals like Esther and Mordecai to bring about extraordinary deliverance. Let us trust in God's providence, embrace courage, and celebrate His faithfulness in preserving and protecting His people.

@@ -89,6 +89,6 @@ Isaiah is closely connected to other prophetic books, such as Jeremiah, Ezekiel,
 2. Ask God to help you align your life with His values of righteousness, justice, and mercy.
 3. Pray for spiritual renewal and revival in your own life and in the Church, that we may be faithful messengers of God's truth and love.
 
-### A Word of Encouragement
+### Conclusion
 
 In the book of Isaiah, we find a powerful message of God's faithfulness, hope, and redemption. Amidst the challenges and trials of life, we can take comfort in knowing that God is with us. Let us trust in His promises, seek His righteousness, and look forward to the fulfillment of His plans. In Jesus Christ, we find the ultimate fulfillment of Isaiah's prophecies, bringing us salvation, healing, and eternal hope.

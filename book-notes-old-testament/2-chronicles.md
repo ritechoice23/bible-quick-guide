@@ -87,6 +87,6 @@ The Book of 2 Chronicles is closely connected to the books of 1 Chronicles, Ezra
 2. Ask God to grant us wisdom and discernment in our leadership roles, that we may make decisions in line with His will.
 3. Pray for a deep sense of reverence and worship, that our lives may be a testimony to God's presence and power.
 
-### A Word of Encouragement
+### Conclusion
 
 The Book of 2 Chronicles reminds us of God's faithfulness, even in times of disobedience and exile. It teaches us the importance of seeking God, trusting in His promises, and repenting from our sins. As we learn from the successes and failures of the kings of Judah, let us hold onto the hope of restoration, knowing that God is always ready to forgive, heal, and bring us back into His presence. Let us remain steadfast in our faith, for our God is faithful to fulfill His promises and restore us to a place of blessing and joy.

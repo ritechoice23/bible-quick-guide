@@ -88,6 +88,6 @@ The Book of Judges continues the narrative of Israel's history following the con
 2. Ask for God's grace to resist the temptations and influences of the surrounding culture.
 3. Pray for strong and faithful leaders in our communities and nations, who will guide God's people with wisdom and righteousness.
 
-### A Word of Encouragement
+### Conclusion
 
 As we study the Book of Judges, let us learn from the mistakes and triumphs of the Israelites. Even in their repeated cycles of disobedience, God remained faithful in raising up deliverers and providing deliverance. May we seek to be faithful to God, recognize the consequences of sin, and trust in His faithfulness to rescue and deliver us in our times of need.

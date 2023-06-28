@@ -92,6 +92,6 @@ The Psalms are interwoven throughout the entirety of the Bible. They are quoted 
 
 to help you express your thoughts, emotions, and desires to Him honestly and authentically, just as the psalmists did. 3. Seek God's guidance and wisdom in applying the lessons and truths of the Psalms to your everyday life.
 
-### A Word of Encouragement
+### Conclusion
 
 In times of joy or sorrow, praise or lament, the Book of Psalms invites us to draw near to God with open hearts and pour out our deepest thoughts and emotions before Him. Through the Psalms, we find solace, strength, and the assurance that God hears and responds to our prayers. May the Psalms be a source of inspiration, comfort, and guidance as you walk in your faith journey, reminding you that God is near and faithful in every season of life.

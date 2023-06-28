@@ -88,6 +88,6 @@ The Book of Job provides a unique perspective on the problem of suffering and th
 2. Ask God to give us wisdom and humility as we encounter the complexities of human suffering and seek to offer support and compassion to those in need.
 3. Pray for a deeper understanding of God's sovereignty and wisdom, that we may trust His purposes even in the midst of life's most challenging circumstances.
 
-### A Word of Encouragement
+### Conclusion
 
 In the story of Job, we are reminded that suffering and trials are a part of the human experience. However, even in the midst of our deepest pain, we can find hope and solace in God's presence. Job's unwavering faith and eventual restoration teach us the importance of trusting in God's sovereignty, even when we cannot understand His ways. May we hold fast to our faith and find comfort in knowing that God is with us in every trial we face.
