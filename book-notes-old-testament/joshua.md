@@ -91,4 +91,4 @@ The Book of Joshua serves as a continuation of the narrative begun in the Book o
 
 ### Conclusion
 
-As we study the Book of Joshua, let us be encouraged by the faith and obedience of Joshua and the Israelites. Just as God was with them in their conquest of the Promised Land, He is with us today. Let us trust in His promises, seek His guidance, and remain steadfast in our commitment to serve and follow Him.
+The Book of Joshua reveals the faith and obedience of Joshua and the Israelites. Just as God was with them in their conquest of the Promised Land, He is with us today. Let us trust in His promises, seek His guidance, and remain steadfast in our commitment to serve and follow Him.

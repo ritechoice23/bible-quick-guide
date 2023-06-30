@@ -57,15 +57,13 @@ The event that inspired the writing of Numbers was the Israelites' rebellion and
 
 ### Key Verses to be Memorized
 
-> "But as truly as I live, all the
-
-earth shall be filled with the glory of the LORD." (Numbers 14:21)
+> "But as truly as I live, all the earth shall be filled with the glory of the LORD." (Numbers 14:21)
 
 > "And the LORD said unto Moses, Make thee a fiery serpent, and set it upon a pole: and it shall come to pass, that every one that is bitten, when he looketh upon it, shall live." (Numbers 21:8)
 
 ### Relation to Other Books of the Bible
 
-Numbers serves as a continuation of the Exodus narrative, showing the journey and struggles of the Israelites after their liberation from Egypt. It sets the stage for the subsequent books that detail their experiences, including Deuteronomy, which contains Moses' final speeches and instructions to the Israelites.
+Numbers serve as a continuation of the Exodus narrative, showing the journey and struggles of the Israelites after their liberation from Egypt. It sets the stage for the subsequent books that detail their experiences, including Deuteronomy, which contains Moses' final speeches and instructions to the Israelites.
 
 ### Life Application Lessons
 
@@ -79,7 +77,7 @@ Numbers serves as a continuation of the Exodus narrative, showing the journey an
 
 1. Who was the author of the Book of Numbers?
 2. What were the consequences of the Israelites' rebellion when they first explored the Promised Land?
-3. What was the purpose of the tabernacle in the wilderness?
+3. What was the purpose of the Tabernacle in the wilderness?
 4. Who were Moses' siblings?
 5. What is the significance of the fiery serpent on a pole?
 

@@ -56,9 +56,7 @@ The writing of 1 Samuel is inspired by the establishment of the monarchy in Isra
 
 ### Key Verses to be Memorized
 
-> "And Samuel said, Hath the Lord as great delight in burnt offerings and sacrifices, as in obeying the voice of the Lord? Behold, to obey is better than sacrifice, and to hearken than the fat of rams." (1 Samuel
-
-15:22, KJV)
+> "And Samuel said, Hath the Lord as great delight in burnt offerings and sacrifices, as in obeying the voice of the Lord? Behold, to obey is better than sacrifice, and to hearken than the fat of rams." (1 Samueli15:22)
 
 > "But the Lord said unto Samuel, Look not on his countenance, or on the height of his stature; because I have refused him: for the Lord seeth not as man seeth; for man looketh on the outward appearance, but the Lord looketh on the heart." (1 Samuel 16:7, KJV)
 
@@ -69,8 +67,8 @@ The writing of 1 Samuel is inspired by the establishment of the monarchy in Isra
 ### Life Application Lessons
 
 1. Obedience to God: The book emphasizes the importance of wholehearted obedience to God's commands and the consequences of disobedience.
-2. Leadership and Character: The lives of Saul and David demonstrate the qualities of effective leadership and the significance of character in God's sight.
-3. Trusting God's Timing: David's patience and trust in God's timing while waiting for his kingship encourage us to rely on God's faithfulness in our own seasons of waiting.
+2. Leadership and Character: The lives of Saul and David demonstrate the qualities of effective leadership and the significance of the character in God's sight.
+3. Trusting God's Timing: David's patience and trust in God's timing while waiting for his kingship encourages us to rely on God's faithfulness in our own seasons of waiting.
 4. Recognizing God's Sovereignty: The book reminds us of God's sovereignty and His ability to work through imperfect human leaders to accomplish His purposes.
 5. Cultivating a Heart for God: David's psalms and his relationship with God inspire us to cultivate a heart of worship, repentance, and reliance on God in our own lives.
 
