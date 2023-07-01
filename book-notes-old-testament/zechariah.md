@@ -51,9 +51,9 @@ The event that inspired the writing of the book of Zechariah was the post-exilic
 
 ### Major Characters
 
-1. Zechariah: The prophet chosen by God to deliver His messages and visions to the
-
-people of Israel. (Zechariah 1:1) 2. Joshua: The high priest who symbolizes the restoration and cleansing of the priesthood. (Zechariah 3:1-10) 3. Zerubbabel: The governor who represents the restoration and rebuilding of the temple. (Zechariah 4:6-10)
+1. Zechariah: The prophet was chosen by God to deliver His messages and visions to the people of Israel. (Zechariah 1:1)&#x20;
+2. Joshua: The high priest who symbolizes the restoration and cleansing of the priesthood. (Zechariah 3:1-10)&#x20;
+3. Zerubbabel: The governor who represents the restoration and rebuilding of the temple. (Zechariah 4:6-10)
 
 ### Key Verses to be Memorized
 

@@ -51,9 +51,10 @@ The event that inspired the writing of the Book of Proverbs was the desire to im
 
 ### Major Characters
 
-1. King Solomon - The primary author of the Proverbs. Known for his wisdom
-
-and understanding. 2. Lady Wisdom - Personified as a female figure, she represents the embodiment of divine wisdom and understanding. 3. The Fool - Depicted as a foolish person who rejects wisdom and pursues his own desires, often leading to destruction. 4. The Wise - Individuals who embrace and seek after wisdom, living according to God's principles.
+1. King Solomon - The primary author of the Proverbs. Known for his wisdom and understanding.&#x20;
+2. Lady Wisdom - Personified as a female figure, she represents the embodiment of divine wisdom and understanding.&#x20;
+3. The Fool - Depicted as a foolish person who rejects wisdom and pursues his own desires, often leading to destruction.&#x20;
+4. The Wise - Individuals who embrace and seek wisdom, living according to God's principles.
 
 ### Key Verses to be Memorized
 
@@ -68,7 +69,7 @@ The Book of Proverbs shares thematic connections with other wisdom literature in
 ### Life Application Lessons
 
 1. Seek wisdom from God by studying and meditating on His Word.
-2. Embrace the fear of the Lord, recognizing His authority and living in obedience to His commandments.
+2. Embrace the fear of the Lord, recognize His authority, and live in obedience to His commandments.
 3. Cultivate integrity and righteousness in all areas of life, including relationships, work, and speech.
 4. Be discerning and avoid the pitfalls of foolishness and wickedness, striving instead to make wise choices.
 5. Trust in the Lord and acknowledge Him in all circumstances, relying on His guidance and direction.

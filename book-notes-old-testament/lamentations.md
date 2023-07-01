@@ -52,9 +52,8 @@ The event that inspires the writing of Lamentations is the destruction of Jerusa
 
 ### Major Characters
 
-1. The people of Judah - Representing the collective experience of the nation, their suffering
-
-, and their cry for restoration. 2. The prophet - Reflecting the author's personal emotions and prayers, as well as his identification with the people's grief and sorrow.
+1. The people of Judah - Represent the collective experience of the nation, their suffering, and their cry for restoration.&#x20;
+2. The prophet - Reflecting the author's personal emotions and prayers, as well as his identification with the people's grief and sorrow.
 
 ### Key Verses to be Memorized
 
@@ -64,7 +63,7 @@ The event that inspires the writing of Lamentations is the destruction of Jerusa
 
 ### Relation to Other Books of the Bible
 
-Lamentations is connected to the book of Jeremiah, as it reflects and amplifies the themes of judgment, mourning, and restoration found in Jeremiah's prophecies. It also echoes the theme of exile found in other prophetic books, such as Ezekiel and Daniel. Lamentations is followed by the book of Ezekiel, which provides further insight into the consequences of the nation's sins and the promise of restoration.
+Lamentations are connected to the book of Jeremiah, as it reflects and amplifies the themes of judgment, mourning, and restoration found in Jeremiah's prophecies. It also echoes the theme of exile found in other prophetic books, such as Ezekiel and Daniel. Lamentations is followed by the book of Ezekiel, which provides further insight into the consequences of the nation's sins and the promise of restoration.
 
 ### Life Application Lessons
 

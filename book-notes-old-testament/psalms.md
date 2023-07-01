@@ -88,9 +88,8 @@ The Psalms are interwoven throughout the entirety of the Bible. They are quoted 
 ### Prayer Points
 
 1. Pray for a deeper understanding of God's character and His presence in your life as you engage with the Psalms.
-2. Ask God
-
-to help you express your thoughts, emotions, and desires to Him honestly and authentically, just as the psalmists did. 3. Seek God's guidance and wisdom in applying the lessons and truths of the Psalms to your everyday life.
+2. Ask God to help you express your thoughts, emotions, and desires to Him honestly and authentically, just as the psalmists did.&#x20;
+3. Seek God's guidance and wisdom in applying the lessons and truths of the Psalms to your everyday life.
 
 ### Conclusion
 

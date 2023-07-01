@@ -46,9 +46,8 @@ The event that inspires the writing of the book of Ezekiel is the Babylonian exi
 
 1. The Call of Ezekiel (Ezekiel 1-3)
 2. Prophecies of Judgment against Judah (Ezekiel 4-24)
-3. Prophecies against Foreign Nations (Ezekiel 25-32
-
-) 4. Restoration and Renewal of Israel (Ezekiel 33-48)
+3. Prophecies against Foreign Nations (Ezekiel 25-32)&#x20;
+4. Restoration and Renewal of Israel (Ezekiel 33-48)
 
 ### Major Characters
 

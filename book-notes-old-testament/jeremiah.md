@@ -47,9 +47,10 @@ The event that inspired the writing of the book of Jeremiah was the impending ju
 1. Introduction and Call of Jeremiah (Jeremiah 1)
 2. Warnings of Judgment and Calls for Repentance (Jeremiah 2-25)
 3. Prophecies against the Nations (Jeremiah 46-51)
-4.
-
-The Fall of Jerusalem and Exile (Jeremiah 39-45, 52) 5. Promises of Restoration and Hope (Jeremiah 30-33) 6. Jeremiah's Personal Suffering and Lamentations (Jeremiah 20, 37-38, 40-42, 45) 7. Historical Appendix (Jeremiah 52)
+4. The Fall of Jerusalem and Exile (Jeremiah 39-45, 52)&#x20;
+5. Promises of Restoration and Hope (Jeremiah 30-33)&#x20;
+6. Jeremiah's Personal Suffering and Lamentations (Jeremiah 20, 37-38, 40-42, 45)&#x20;
+7. Historical Appendix (Jeremiah 52)
 
 ### Major Characters
 

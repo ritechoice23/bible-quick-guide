@@ -32,7 +32,7 @@ The authorship of 2 Kings is unknown, but it is believed to be written by a comp
 
 ### Historical Context
 
-2 Kings covers the period following the divided kingdom, from the reign of King Ahaziah of Judah to the Babylonian exile. It narrates the political alliances, conflicts, and spiritual condition of Israel and Judah during this time. The book also highlights the rise of powerful empires such as Assyria and Babylon.
+2 Kings covers the period following the divided kingdom, from the reign of King Ahaziah of Judah to the Babylonian exile. It narrates the political alliances, conflicts, and spiritual conditions of Israel and Judah during this time. The book also highlights the rise of powerful empires such as Assyria and Babylon.
 
 ### Cultural Context
 
@@ -55,9 +55,11 @@ The writing of 2 Kings is inspired by the historical events surrounding the reig
 
 ### Major Characters
 
-1. Elijah: A prophet of God who
-
-confronts idolatry, performs miracles, and is taken up to heaven in a whirlwind. (2 Kings 2:1-12) 2. Elisha: Elijah's successor, known for his miraculous deeds and his ministry to the kings and people of Israel. (2 Kings 2:13-14) 3. Jehu: Anointed as king by Elisha, he carries out God's judgment against the house of Ahab. (2 Kings 9:6-10) 4. Hezekiah: A righteous king of Judah who seeks God, reforms the nation, and experiences miraculous deliverance from the Assyrians. (2 Kings 18-20) 5. Josiah: A righteous king who brings about religious reforms and discovers the Book of the Law in the temple. (2 Kings 22-23)
+1. Elijah: A prophet of God who confronts idolatry, performs miracles and is taken up to heaven in a whirlwind. (2 Kings 2:1-12)&#x20;
+2. Elisha: Elijah's successor, known for his miraculous deeds and his ministry to the kings and people of Israel. (2 Kings 2:13-14)&#x20;
+3. Jehu: Anointed as king by Elisha, he carries out God's judgment against the house of Ahab. (2 Kings 9:6-10)&#x20;
+4. Hezekiah: A righteous king of Judah who seeks God, reforms the nation, and experiences miraculous deliverance from the Assyrians. (2 Kings 18-20)&#x20;
+5. Josiah: A righteous king who brings about religious reforms and discovers the Book of the Law in the temple. (2 Kings 22-23)
 
 ### Key Verses to be Memorized
 
@@ -93,4 +95,4 @@ confronts idolatry, performs miracles, and is taken up to heaven in a whirlwind.
 
 ### Conclusion
 
-The Book of 2 Kings provides a valuable historical account of Israel's monarchy, offering profound insights
+The Book of 2 Kings provides a valuable historical account of Israel's monarchy, offering profound insights.

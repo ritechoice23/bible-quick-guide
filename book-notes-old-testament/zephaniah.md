@@ -49,15 +49,13 @@ The event that inspired the writing of the book of Zephaniah was the prevalent i
 
 ### Major Characters
 
-1. Zephaniah: The prophet chosen by God to deliver a message of judgment and hope.
+1. Zephaniah: The prophet was chosen by God to deliver a message of judgment and hope.
 
 ### Key Verses to be Memorized
 
 > "The LORD thy God in the midst of thee is mighty; he will save, he will rejoice over thee with joy; he will rest in his love, he will joy over thee with singing." (Zephaniah 3:17)
 
-> "Seek ye the LORD, all ye meek of the earth, which have wrought his judgment; seek righteousness, seek meekness:
-
-it may be ye shall be hid in the day of the LORD'S anger." (Zephaniah 2:3)
+> "Seek ye the LORD, all ye meek of the earth, which have wrought his judgment; seek righteousness, seek meekness: it may be ye shall be hid in the day of the LORD'S anger." (Zephaniah 2:3)
 
 ### Relation to Other Books of the Bible
 

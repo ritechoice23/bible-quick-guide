@@ -57,9 +57,7 @@ Paul wrote the letter to the Philippians to express his gratitude for their supp
 
 ### Key Verses to Be Memorized
 
-> "Rejoice in the Lord always: and again I say, Rejoice" (Philippians 4:
-
-4\).
+> "Rejoice in the Lord always: and again I say, Rejoice" (Philippians 4:4).
 
 > "I can do all things through Christ which strengtheneth me" (Philippians 4:13).
 

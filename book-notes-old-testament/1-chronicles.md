@@ -51,9 +51,10 @@ The event that inspires the writing of 1 Chronicles is the restoration of worshi
 
 ### Major Characters
 
-1. David - A shepherd who becomes the beloved king of Israel
-
-, known for his courage, musical skill, and deep love for God (1 Chronicles 11-29). 2. Solomon - David's son and successor, who builds the temple in Jerusalem and is known for his wisdom and wealth (1 Chronicles 22-29). 3. Levi - One of the twelve sons of Jacob and the ancestor of the Levites, the priestly tribe (1 Chronicles 6:1-81). 4. Asaph - A prominent Levite musician and composer of psalms (1 Chronicles 6:39; 15:16-19). 5. Zadok - A priest appointed by David to serve in the sanctuary and later to serve as high priest (1 Chronicles 15:11; 29:22).
+1. David - A shepherd who becomes the beloved king of Israel , known for his courage, musical skill, and deep love for God (1 Chronicles 11-29).&#x20;
+2. Solomon - David's son and successor, who builds the temple in Jerusalem and is known for his wisdom and wealth (1 Chronicles 22-29).&#x20;
+3. Levi - One of the twelve sons of Jacob and the ancestor of the Levites, the priestly tribe (1 Chronicles 6:1-81).&#x20;
+4. Asaph - A prominent Levite musician and composer of psalms (1 Chronicles 6:39; 15:16-19). 5. Zadok - A priest appointed by David to serve in the sanctuary and later to serve as high priest (1 Chronicles 15:11; 29:22).
 
 ### Key Verses to be Memorized
 
@@ -63,7 +64,7 @@ The event that inspires the writing of 1 Chronicles is the restoration of worshi
 
 ### Relation to Other Books of the Bible
 
-The Book of 1 Chronicles is closely related to the books of 2 Chronicles, Ezra, and Nehemiah. Together, these books provide a comprehensive historical account of Israel from the reign of King David to the return from the Babylonian exile and the rebuilding of Jerusalem. The events and teachings recorded in 1 Chronicles are further developed and expanded upon in these subsequent books.
+The Book of 1 Chronicles is closely related to the books of 2 Chronicles, Ezra, and Nehemiah. Together, these books provide a comprehensive historical account of Israel from the reign of King David to the return from the Babylonian exile and the rebuilding of Jerusalem. The events and teachings recorded in 1 Chronicle are further developed and expanded upon in these subsequent books.
 
 ### Life Application Lessons
 

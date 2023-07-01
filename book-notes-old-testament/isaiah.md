@@ -32,7 +32,7 @@ Isaiah, the son of Amoz, was a native of Jerusalem and a contemporary of kings U
 
 ### Historical Context
 
-The book of Isaiah was written during a time of significant historical events in Judah. Isaiah began his ministry around 740 BC, during the reign of King Uzziah, and continued until at least 681 BC, during the reign of King Manasseh. The nation faced political turmoil, including the rise of Assyria as a dominant power and the threat of invasion. The people also struggled with idolatry, social injustice, and spiritual corruption, leading to God's warnings and judgments.
+The Book of Isaiah was written during a time of significant historical events in Judah. Isaiah began his ministry around 740 BC, during the reign of King Uzziah, and continued until at least 681 BC, during the reign of King Manasseh. The nation faced political turmoil, including the rise of Assyria as a dominant power and the threat of invasion. The people also struggled with idolatry, social injustice, and spiritual corruption, leading to God's warnings and judgments.
 
 ### Cultural Context
 
@@ -46,9 +46,8 @@ The events that inspired the writing of the book of Isaiah include the political
 
 1. Introduction and Warnings (Isaiah 1-5)
 2. Judgment, Hope, and Restoration (Isaiah 6-39)
-3.
-
-Oracles against Nations and Promises of Salvation (Isaiah 40-55) 4. The Suffering Servant and the Future Glory (Isaiah 56-66)
+3. Oracles against Nations and Promises of Salvation (Isaiah 40-55)&#x20;
+4. The Suffering Servant and the Future Glory (Isaiah 56-66)
 
 ### Major Characters
 

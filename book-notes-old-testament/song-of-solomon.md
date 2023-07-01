@@ -51,9 +51,9 @@ The event that inspires the writing of the Song of Solomon is the celebration of
 
 ### Major Characters
 
-1. The Bride (Shulammite Woman) - Portrays the beloved and desired
-
-one, representing the bride of Christ. 2. The Beloved (often identified as King Solomon) - Represents the lover and pursuer of the bride, symbolizing Christ, the Bridegroom. 3. Friends and Daughters of Jerusalem - Secondary characters who provide commentary and support the love story.
+1. The Bride (Shulammite Woman) - Portrays the beloved and desired one, representing the bride of Christ.&#x20;
+2. The Beloved (often identified as King Solomon) - Represents the lover and pursuer of the bride, symbolizing Christ, the Bridegroom.&#x20;
+3. Friends and Daughters of Jerusalem - Secondary characters who provide commentary and support the love story.
 
 ### Key Verses to be Memorized
 

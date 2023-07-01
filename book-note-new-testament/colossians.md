@@ -36,7 +36,7 @@ Paul wrote the letter to the Colossians while imprisoned, likely in Rome, around
 
 ### Cultural Context
 
-Colossae was a city in Asia Minor that had a diverse population, comprising Jews, Greeks, and Phrygians. The culture of Colossae was influenced by Hellenistic and local religious practices. The rise of Gnosticism, a heretical belief system that claimed to offer special knowledge for salvation, posed a challenge to the Colossian believers. Paul's letter aimed to counter these false teachings and reaffirm the sufficiency of Christ.
+Colossae was a city in Asia Minor that had a diverse population, comprising Jews, Greeks, and Phrygians. The culture of Colossae was influenced by Hellenistic and local religious practices. The rise of Gnosticism, a heretical belief system that claimed to offer special knowledge for salvation, posed a challenge to Colossian believers. Paul's letter aimed to counter these false teachings and reaffirm the sufficiency of Christ.
 
 ### The Event that Inspires the Writing of the Book
 
@@ -52,9 +52,7 @@ Paul wrote the letter to the Colossians in response to reports he received about
 ### Major Characters
 
 1. Paul - The author of the letter and an apostle of Christ.
-2. Believers in Coloss
-
-ae - The recipients of the letter, both Jews and Gentiles, who had put their faith in Christ.
+2. Believers in Colossae - The recipients of the letter, both Jews and Gentiles, who had put their faith in Christ.
 
 ### Key Verses to be Memorized
 

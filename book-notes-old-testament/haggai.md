@@ -56,9 +56,7 @@ The event that inspired the writing of the book of Haggai was the people's negle
 
 > "Consider now from this day and upward, from the four and twentieth day of the ninth month, even from the day that the foundation of the LORD'S temple was laid, consider it. Is the seed yet in the barn? Yea, as yet the vine, and the fig tree, and the pomegranate, and the olive tree, hath not brought forth: from this day will I bless you." (Haggai 2:18-19)
 
-> "According to the word that I covenanted with you when ye came out of
-
-Egypt, so my spirit remaineth among you: fear ye not." (Haggai 2:5)
+> "According to the word that I covenanted with you when ye came out of Egypt, so my spirit remaineth among you: fear ye not." (Haggai 2:5)
 
 ### Relation to Other Books of the Bible
 

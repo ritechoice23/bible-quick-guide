@@ -51,9 +51,11 @@ The event that inspires the writing of 2 Chronicles is the Babylonian exile and 
 
 ### Major Characters
 
-1. Solomon - The son of David who succeeds him as king and builds the temple in Jerusalem (2 Chronicles 1-
-
-9\). 2. Rehoboam - Solomon's son who becomes king but fails to maintain the unity of the kingdom (2 Chronicles 10-12). 3. Asa - A righteous king who institutes religious reforms and seeks the Lord wholeheartedly (2 Chronicles 14-16). 4. Jehoshaphat - A faithful king who seeks God's guidance and leads the people in worship and obedience (2 Chronicles 17-20). 5. Hezekiah - A righteous king who restores worship, celebrates the Passover, and experiences God's deliverance (2 Chronicles 29-32).
+1. Solomon - The son of David who succeeds him as king and builds the temple in Jerusalem (2 Chronicles 1-9).&#x20;
+2. Rehoboam - Solomon's son who becomes king but fails to maintain the unity of the kingdom (2 Chronicles 10-12).&#x20;
+3. Asa - A righteous king who institutes religious reforms and seeks the Lord wholeheartedly (2 Chronicles 14-16).&#x20;
+4. Jehoshaphat - A faithful king who seeks God's guidance and leads the people in worship and obedience (2 Chronicles 17-20).&#x20;
+5. Hezekiah - A righteous king who restores worship, celebrates the Passover and experiences God's deliverance (2 Chronicles 29-32).
 
 ### Key Verses to be Memorized
 
@@ -84,7 +86,7 @@ The Book of 2 Chronicles is closely connected to the books of 1 Chronicles, Ezra
 ### Prayer Points
 
 1. Pray for a humble and repentant heart, both individually and collectively, recognizing our need for God's forgiveness and restoration.
-2. Ask God to grant us wisdom and discernment in our leadership roles, that we may make decisions in line with His will.
+2. Ask God to grant us wisdom and discernment in our leadership roles, so that we may make decisions in line with His will.
 3. Pray for a deep sense of reverence and worship, that our lives may be a testimony to God's presence and power.
 
 ### Conclusion

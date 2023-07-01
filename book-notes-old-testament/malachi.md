@@ -45,14 +45,12 @@ The event that inspired the writing of the book of Malachi was the spiritual apa
 ### Major Outlines
 
 1. Confrontation of the people's spiritual apathy and unfaithfulness (Malachi 1-2)
-2. Rebuke against various sins and call to genuine worship (Malachi 3:1-4:6)
+2. The rebuke against various sins and call to genuine worship (Malachi 3:1-4:6)
 
 ### Major Characters
 
-1. Malachi: The prophet chosen by God to deliver His messages to the people of Israel.
-2. The people of Israel: The recipients of God's messages and the ones called to repent
-
-ance and renewed obedience.
+1. Malachi: The prophet was chosen by God to deliver His messages to the people of Israel.
+2. The people of Israel: The recipients of God's messages and the ones called to repentance and renewed obedience.
 
 ### Key Verses to be Memorized
 

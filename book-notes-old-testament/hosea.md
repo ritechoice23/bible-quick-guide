@@ -54,9 +54,7 @@ The book is inspired by the spiritual adultery of Israel, who turned away from t
 
 ### Relation to Other Books of the Bible
 
-The Book of Hosea shares common themes with other prophetic books, particularly Jeremiah and Ezekiel, in their messages of judgment and restoration. It also emphasizes God's enduring love and His desire for a faithful relationship with His people, echoing the themes found in the New Testament, such as the parable of
-
-the prodigal son in Luke 15.
+The Book of Hosea shares common themes with other prophetic books, particularly Jeremiah and Ezekiel, in their messages of judgment and restoration. It also emphasizes God's enduring love and His desire for a faithful relationship with His people, echoing the themes found in the New Testament, such as the parable of the prodigal son in Luke 15.
 
 ### Life Application Lessons
 

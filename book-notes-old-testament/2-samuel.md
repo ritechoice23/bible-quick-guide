@@ -58,9 +58,7 @@ The writing of 2 Samuel is inspired by the reign of King David and the significa
 
 ### Key Verses to be Memorized
 
-> "Then David said to
-
-Solomon his son, Be strong and of good courage, and do it: fear not, nor be dismayed: for the LORD God, even my God, will be with thee; he will not fail thee, nor forsake thee, until thou hast finished all the work for the service of the house of the LORD." (1 Chronicles 28:20, KJV)
+> "Then David said to Solomon his son, Be strong and of good courage, and do it: fear not, nor be dismayed: for the LORD God, even my God, will be with thee; he will not fail thee, nor forsake thee, until thou hast finished all the work for the service of the house of the LORD." (1 Chronicles 28:20, KJV)
 
 > "For thou, O LORD of hosts, God of Israel, hast revealed to thy servant, saying, I will build thee an house: therefore hath thy servant found in his heart to pray this prayer unto thee." (2 Samuel 7:27, KJV)
 
