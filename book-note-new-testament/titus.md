@@ -51,9 +51,8 @@ The writing of Titus was inspired by Paul's concern for the church in Crete. Fal
 ### Major Characters
 
 1. Paul - The Apostle and author of the letter (Titus 1:1).
-2. Tit
-
-us - A trusted companion and fellow worker in the ministry (Titus 1:4). 3. False Teachers - Individuals promoting false doctrines and causing division within the church (Titus 1:10-14).
+2. Titus - A trusted companion and fellow worker in the ministry (Titus 1:4).&#x20;
+3. False Teachers - Individuals promoting false doctrines and causing division within the church (Titus 1:10-14).
 
 ### Key Verses to be Memorized
 

@@ -55,15 +55,13 @@ There are no specific human characters mentioned in the Book of Jude.
 
 ### Key Verses to be Memorized
 
-> "But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Ghost, keep yourselves in the
-
-love of God, looking for the mercy of our Lord Jesus Christ unto eternal life." (Jude 1:20-21)
+> "But ye, beloved, building up yourselves on your most holy faith, praying in the Holy Ghost, keep yourselves in the love of God, looking for the mercy of our Lord Jesus Christ unto eternal life." (Jude 1:20-21)
 
 > "Now unto him that is able to keep you from falling, and to present you faultless before the presence of his glory with exceeding joy, to the only wise God our Saviour, be glory and majesty, dominion and power, both now and ever. Amen." (Jude 1:24-25)
 
 ### Relation to Other Books of the Bible
 
-The Book of Jude shares similarities with 2 Peter in terms of addressing false teachers and their destructive influence. It also echoes the teachings found in other New Testament letters, such as the epistles of Paul, which emphasize the need for believers to contend for the true faith and remain steadfast in their commitment to Christ.
+The Book of Jude shares similarities with 2 Peter in terms of addressing false teachers and their destructive influence. It also echoes the teachings found in other New Testament letters, such as the epistles of Paul, which emphasize the need for believers to contend for true faith and remain steadfast in their commitment to Christ.
 
 ### Life Application Lessons
 

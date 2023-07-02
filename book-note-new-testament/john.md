@@ -24,15 +24,11 @@ The Gospel of John is a theological biography, presenting the life and teachings
 
 ### The Author
 
-The Gospel of John is written by John, one of Jesus' twelve apostles and the son of Zebedee. John, along with his brother James, was called by Jesus to be a fisher of men. He was known as the "beloved disciple" and had a close relationship with Jesus, witnessing many significant events during His ministry. John's deep understanding of Jesus' teachings and his personal experiences with Him are reflected in the profound theological insights presented in his Gospel.
+John the Apostle
 
-About the Author:
+### About the Author:
 
-* Parent's name: Zebedee (Matthew 4:21)
-* Nativity: Galilee, likely born in Bethsaida (John 1:44)
-* Wife's name: N/A (not mentioned in the Bible)
-* Children's name: N/A (not mentioned in the Bible)
-* Life and death: John lived to an old age, serving as a prominent leader in the early Christian community. He is believed to have died around 100 AD, possibly in Ephesus.
+The Gospel of John is written by John, one of Jesus' twelve apostles and the son of Zebedee, a nativity of Galilee, likely born in Bethsaida (John 1:44). John, along with his brother James, was called by Jesus to be a fisher of men. He was known as the "beloved disciple" and had a close relationship with Jesus, witnessing many significant events during His ministry. John's deep understanding of Jesus' teachings and his personal experiences with Him are reflected in the profound theological insights presented in his Gospel. John lived to old age, serving as a prominent leader in the early Christian community. He is believed to have died around 100 AD, possibly in Ephesus.
 
 ### Historical Context
 

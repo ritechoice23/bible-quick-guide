@@ -30,7 +30,7 @@ The book of Zechariah was written by the prophet Zechariah.
 
 Zechariah, whose name means "Yahweh remembers," was a prophet chosen by God to deliver His messages to the people of Israel. He was a contemporary of the prophet Haggai, and together they played a significant role in encouraging the Israelites to rebuild the temple and renew their commitment to God. Zechariah's prophecies contained powerful visions and symbolisms that conveyed God's plans for His people and the future Messiah.
 
-Zechariah was the son of Berechiah, the son of Iddo. He was a priest by birth and was likely part of the priestly family that returned from Babylonian captivity. Zechariah's ministry spanned over a period of two years, during which he witnessed the restoration and rebuilding efforts in Jerusalem. Tradition holds that Zechariah was martyred for his faithfulness to God's message.
+Zechariah was likely part of the priestly family that returned from Babylonian captivity. Zechariah's ministry spanned over a period of two years, during which he witnessed the restoration and rebuilding efforts in Jerusalem. Tradition holds that Zechariah was martyred for his faithfulness to God's message.
 
 ### Historical Context
 

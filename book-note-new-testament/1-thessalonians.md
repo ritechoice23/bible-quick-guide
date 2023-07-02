@@ -28,7 +28,7 @@ Epistle (Letter)
 
 ### About the Author
 
-Paul, also known as Saul, was a zealous Pharisee who persecuted Christians until his encounter with Jesus Christ on the road to Damascus (Acts 9:1-19). After his conversion, he became a fervent preacher of the gospel, planting churches and writing letters to various congregations. Paul's writings, including 1 Thessalonians, reflect his deep theological understanding and pastoral heart for the early Christian communities.
+Paul, also known as Saul, was a zealous Pharisee who persecuted Christians until his encounter with Jesus Christ on the road to Damascus (Acts 9:1-19). After his conversion, he became a fervent preacher of the gospel, planting churches and writing letters to various congregations. Paul's writings, including  1 Thessalonians, reflect his deep theological understanding and pastoral heart for the early Christian communities.
 
 ### Historical Context
 
@@ -36,7 +36,7 @@ Paul wrote the letter to the Thessalonians during his second missionary journey,
 
 ### Cultural Context
 
-Thessalonica was an important Roman city in Macedonia, known for its diverse population and commerce. The culture of Thessalonica was influenced by both Greek and Roman traditions. The believers in Thessalonica came from various backgrounds, including Jews, Gentiles, and God-fearing Greeks. The letter addresses the challenges faced by these new converts in living out their faith in the midst of a culture that opposed Christianity.
+Thessalonica was an important Roman city in Macedonia, known for its diverse population and commerce. The culture of Thessalonica was influenced by both Greek and Roman traditions. The believers in Thessalonica came from various backgrounds, including Jews, Gentiles, and God-fearing Greeks. The letter addresses the challenges faced by these new converts in living out their faith amid a culture that opposed Christianity.
 
 ### The Event that Inspires the Writing of the Book
 

@@ -20,11 +20,11 @@ Epistle (Letter) with elements of homily and theological exposition
 
 1. Jesus Christ, the Son of God, is superior to angels, Moses, and the Levitical priesthood, as He is the ultimate revelation of God and the perfect sacrifice for sins (Hebrews 1-10).
 2. The letter exhorts believers to persevere in their faith, reminding them of the faithfulness of God and the examples of Old Testament heroes (Hebrews 11-12).
-3. The author emphasizes the importance of worshiping God with reverence, love, and obedience, encouraging believers to follow the teachings of Christ and to live in community (Hebrews 13).
+3. The author emphasizes the importance of worshiping God with reverence, love, and obedience, encouraging believers to follow the teachings of Christ and to live in a community (Hebrews 13).
 
 ### The Author
 
-**Author:** Unknown
+&#x20;Unknown
 
 ### About the Author
 

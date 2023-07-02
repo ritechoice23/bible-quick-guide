@@ -24,11 +24,11 @@ Prophetic
 
 ### Author
 
-The book of Obadiah was written by the prophet Obadiah, whose name means "servant of the Lord." Obadiah is one of the Minor Prophets in the Old Testament. Although not much is known about Obadiah's personal background, he faithfully delivered God's message of judgment against Edom. His prophetic ministry likely took place during or after the Babylonian exile when Edom rejoiced over the fall of Jerusalem.
+The book of Obadiah was written by the prophet Obadiah.
 
 ### About the Author
 
-Obadiah's ministry was directed toward the nation of Edom, which descended from Esau, the twin brother of Jacob. The book of Obadiah denounces Edom's pride, violence, and mistreatment of their brother nation, Israel. Obadiah's message exposes the consequences of their actions and declares God's judgment upon Edom. Despite their present triumph, Obadiah assures Israel of their restoration and the establishment of God's eternal kingdom.
+Obadiah whose name means "servant of the Lord." is one of the Minor Prophets in the Old Testament. Although not much is known about Obadiah's personal background, he faithfully delivered God's message of judgment against Edom. His prophetic ministry likely took place during or after the Babylonian exile when Edom rejoiced over the fall of Jerusalem. Obadiah's ministry was directed toward the nation of Edom, which descended from Esau, the twin brother of Jacob. The book of Obadiah denounces Edom's pride, violence, and mistreatment of their brother nation, Israel. Obadiah's message exposes the consequences of their actions and declares God's judgment upon Edom. Despite their present triumph, Obadiah assures Israel of their restoration and the establishment of God's eternal kingdom.
 
 ### Historical Context
 

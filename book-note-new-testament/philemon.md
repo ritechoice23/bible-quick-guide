@@ -24,7 +24,7 @@ Epistle (Letter)
 
 ### The Author
 
-**Author:** The Apostle Paul
+The Apostle Paul
 
 ### About the Author
 
@@ -32,7 +32,7 @@ Paul, formerly known as Saul, was a Pharisee who persecuted Christians until his
 
 ### Historical Context
 
-Paul wrote the letter to Philemon while in prison, likely during his first Roman imprisonment. Philemon, a believer and a slave owner, resided in Colossae. Onesimus, Philemon's runaway slave, had encountered Paul and become a Christian during his time in Rome. In the letter, Paul intercedes on behalf of Onesimus, urging Philemon to receive him back not as a slave but as a brother in Christ. The letter reflects the social dynamics and challenges of the early Christian community, emphasizing the transformational power of the gospel.
+Paul wrote the letter to Philemon while in prison, likely during his first Roman imprisonment. Philemon, a believer, and a slave owner, resided in Colossae. Onesimus, Philemon's runaway slave, had encountered Paul and become a Christian during his time in Rome. In the letter, Paul intercedes on behalf of Onesimus, urging Philemon to receive him back not as a slave but as a brother in Christ. The letter reflects the social dynamics and challenges of the early Christian community, emphasizing the transformational power of the gospel.
 
 ### Cultural Context
 
@@ -45,9 +45,8 @@ The event that inspires the writing of the book is the encounter between Paul an
 ### Major Outlines
 
 1. Paul's Appeal on Behalf of Onesimus (Philemon 1:8-21)
-2. Paul's Request for Hospitality (Philemon 1:22-
-3.
-4. Final Greetings and Benediction (Philemon 1:25)
+2. Paul's Request for Hospitality (Philemon 1:22)
+3. Final Greetings and Benediction (Philemon 1:25)
 
 ### Major Characters
 
@@ -85,7 +84,7 @@ Philemon is a personal letter written by Paul, addressing a specific situation i
 
 1. Pray for hearts open to forgiveness and reconciliation, both individually and within the Christian community.
 2. Ask God to give us a deep understanding of the transforming power of the gospel and its implications for our relationships.
-3. Pray for wisdom and discernment in addressing social issues, that we may champion justice and equality, reflecting Christ's love and grace.
+3. Pray for wisdom and discernment in addressing social issues, so that we may champion justice and equality, reflecting Christ's love and grace.
 
 ### Conclusion
 

@@ -28,7 +28,7 @@ Unknown, though traditionally attributed to the prophet Jeremiah or a group of p
 
 ### About the Author
 
-The authorship of 2 Kings is unknown, but it is believed to be written by a compiler or group of writers who carefully collected and organized historical records. They documented the reigns of various kings, their actions, and the events surrounding the decline and fall of the Israelite monarchy.
+Jeremiah, the son of Hilkiah, was a priest from the town of Anathoth in the tribe of Benjamin. God called Jeremiah to be a prophet while he was still young. Jeremiah faced numerous challenges and opposition as he faithfully proclaimed God's messages of judgment and hope. He experienced personal rejection and suffering, yet remained steadfast in his commitment to God. The details of Jeremiah's death are not explicitly mentioned in the Bible.
 
 ### Historical Context
 

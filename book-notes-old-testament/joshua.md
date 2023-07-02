@@ -55,9 +55,7 @@ The writing of the Book of Joshua is inspired by the conquest and settlement of 
 2. Rahab – A Canaanite woman who assisted the Israelite spies and was spared during the conquest of Jericho (Joshua 2:1-21).
 3. Caleb – A faithful spy and warrior who inherited the land of Hebron (Joshua 14:6-15).
 
-### Key Verses
-
-to be Memorized
+### Key Verses to be Memorized
 
 > "Have I not commanded you? Be strong and of good courage; do not be afraid, nor be dismayed, for the LORD your God is with you wherever you go." (Joshua 1:9)
 

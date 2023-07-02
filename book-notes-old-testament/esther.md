@@ -19,12 +19,12 @@ Historical Narrative
 ### The Book in 3 Sentences
 
 1. The Book of Esther tells the story of Esther, a Jewish orphan who becomes queen of Persia and, with the guidance of her cousin Mordecai, risks her life to save the Jewish people from annihilation.
-2. It reveals the hidden hand of God working behind the scenes, orchestrating events and using unlikely individuals to fulfill His purposes.
+2. It reveals the hidden hand of God working behind the scenes, orchestrating events, and using unlikely individuals to fulfill His purposes.
 3. The book emphasizes the importance of courage, trust in God's providence, and the celebration of the Jewish festival of Purim as a commemoration of their deliverance.
 
 ### Author
 
-The Book of Esther does not explicitly mention the author, and its authorship is unknown. It is traditionally attributed to the prophet and historian Mordecai, who plays a significant role in the events described in the book.
+The Book of Esther does not explicitly mention the author and its authorship is unknown. It is traditionally attributed to the prophet and historian Mordecai, who plays a significant role in the events described in the book.
 
 ### About the Author
 
@@ -48,15 +48,13 @@ The event that inspires the writing of the Book of Esther is the deliverance of 
 2. Esther Becomes Queen (Esther 2)
 3. Mordecai's Discovery and Haman's Plot (Esther 3)
 4. Esther's Intercession and the Decree Reversal (Esther 4-5)
-5. Haman's Downfall and Mordecai's Honor (
-
-Esther 6-10)
+5. Haman's Downfall and Mordecai's Honor (Esther 6-10)
 
 ### Major Characters
 
 1. Esther - A Jewish woman who becomes queen of Persia, chosen by King Ahasuerus for her beauty and charm. She risks her life to save her people from Haman's plot. (Esther 2-9)
 2. Mordecai - Esther's cousin and guardian, a faithful Jew who uncovers a conspiracy against the king and plays a crucial role in foiling Haman's plan. (Esther 2-9)
-3. King Ahasuerus (Xerxes I) - The Persian king who holds a lavish banquet, deposes Queen Vashti, and later chooses Esther as his new queen. (Esther 1-2)
+3. King Ahasuerus (Xerxes I) - The Persian king who holds a lavish banquet, deposes Queen Vashti and later chooses Esther as his new queen. (Esther 1-2)
 4. Haman - An arrogant and wicked official in the Persian court who devises a plan to annihilate the Jews. His plan is ultimately foiled, and he faces the consequences of his evil actions. (Esther 3-7)
 5. Queen Vashti - The former queen of Persia, who is deposed by King Ahasuerus for refusing to appear before him and his guests. (Esther 1)
 

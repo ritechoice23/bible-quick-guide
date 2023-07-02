@@ -24,11 +24,11 @@ Narrative and Prophetic
 
 ### Author
 
-The book of Jonah was written by the prophet Jonah himself. Jonah was a prophet from the northern kingdom of Israel during the reign of King Jeroboam II. He is also mentioned in 2 Kings 14:25, where he prophesied the restoration of Israel's borders.
+The book of Jonah was written by the prophet Jonah himself.&#x20;
 
 ### About the Author
 
-Jonah was the son of Amittai from the town of Gath Hepher in the region of Zebulun. He was chosen by God to deliver a message of warning and repentance to the city of Nineveh, the capital of Assyria. However, Jonah initially resisted God's command and tried to flee by boarding a ship. Through a series of events, including being swallowed by a great fish, Jonah learned the importance of obedience and the extent of God's mercy.
+Jonah was the son of Amittai from the town of Gath Hepher in the region of Zebulun. He was a prophet from the northern kingdom of Israel during the reign of King Jeroboam II. He is also mentioned in 2 Kings 14:25, where he prophesied the restoration of Israel's borders. He was chosen by God to deliver a message of warning and repentance to the city of Nineveh, the capital of Assyria. However, Jonah initially resisted God's command and tried to flee by boarding a ship. Through a series of events, including being swallowed by a great fish, Jonah learned the importance of obedience and the extent of God's mercy.
 
 ### Historical Context
 

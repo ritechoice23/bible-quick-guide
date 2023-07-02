@@ -50,9 +50,7 @@ The event that inspires the writing of the book of Joel is a devastating locust 
 ### Major Characters
 
 1. Joel - The prophet called by God to deliver His messages to the people.
-2. The people of Judah - The recipients of Joel's prophec
-
-ies, called to repentance and returning to God.
+2. The people of Judah - The recipients of Joel's prophecies, called to repentance and return to God.
 
 ### Key Verses to be Memorized
 

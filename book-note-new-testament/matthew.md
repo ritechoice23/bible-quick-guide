@@ -40,7 +40,7 @@ In the cultural context of Matthew, Judaism was the dominant religious and cultu
 
 ### The Event that Inspires the Writing of the Book
 
-The event that inspired the writing of the book of Matthew was the life, ministry, death, and resurrection of Jesus Christ. Matthew, as an eyewitness and disciple of Jesus, felt compelled to document the events surrounding Jesus' life and teachings. He wanted to present a comprehensive account that would provide evidence of Jesus' identity as the long-awaited Messiah and encourage belief in Him as the Son of God.
+The event that inspired the writing of the Book of Matthew was the life, ministry, death, and resurrection of Jesus Christ. Matthew, as an eyewitness and disciple of Jesus, felt compelled to document the events surrounding Jesus' life and teachings. He wanted to present a comprehensive account that would provide evidence of Jesus' identity as the long-awaited Messiah and encourage belief in Him as the Son of God.
 
 ### Major Outlines
 
@@ -53,9 +53,8 @@ The event that inspired the writing of the book of Matthew was the life, ministr
 1. Jesus Christ: The central figure of the Gospel, the Son of God, and the long-awaited Messiah.
 2. John the Baptist: The prophet who prepared the way for Jesus' ministry and baptized Him in the Jordan River.
 3. The Twelve Disciples: The chosen followers of Jesus, who accompanied Him during His ministry and received His teachings and commission.
-4. Pharisees, Sadducees, and Jewish Religious Leaders: The religious authorities of the time, often in conflict with Jesus and
-
-His teachings. 5. Mary, Joseph, and various individuals encountered by Jesus during His ministry.
+4. Pharisees, Sadducees, and Jewish Religious Leaders: The religious authorities of the time, were often in conflict with Jesus and His teachings.&#x20;
+5. Mary, Joseph, and various individuals encountered by Jesus during His ministry.
 
 ### Key Verses to be Memorized
 

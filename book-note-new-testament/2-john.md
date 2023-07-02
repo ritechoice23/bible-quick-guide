@@ -57,9 +57,7 @@ The specific event that inspired the writing of 2 John is not mentioned within t
 
 > "And this is love, that we walk after his commandments. This is the commandment, That, as ye have heard from the beginning, ye should walk in it." (2 John 1:6)
 
->
-
-"Whosoever transgresseth, and abideth not in the doctrine of Christ, hath not God. He that abideth in the doctrine of Christ, he hath both the Father and the Son." (2 John 1:9)
+> "Whosoever transgresseth, and abideth not in the doctrine of Christ, hath not God. He that abideth in the doctrine of Christ, he hath both the Father and the Son." (2 John 1:9)
 
 ### Relation to Other Books of the Bible
 

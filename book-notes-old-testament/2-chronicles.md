@@ -28,7 +28,7 @@ The author of 2 Chronicles is not explicitly mentioned in the book. However, tra
 
 ### About the Author
 
-The Book of 2 Chronicles does not provide specific information about its author. However, Ezra, a priest and scribe who led the second wave of exiles returning from Babylon to Jerusalem, is traditionally considered the author. He was a faithful servant of God, dedicated to preserving and teaching the Law of Moses to the people. Ezra played a significant role in the restoration of worship in Jerusalem and the spiritual renewal of the Israelites.
+The Book of 2 Chronicles does not provide specific information about its author. However, Ezra, a priest, and scribe who led the second wave of exiles returning from Babylon to Jerusalem, is traditionally considered the author. He was a faithful servant of God, dedicated to preserving and teaching the Law of Moses to the people. Ezra played a significant role in the restoration of worship in Jerusalem and the spiritual renewal of the Israelites.
 
 ### Historical Context
 

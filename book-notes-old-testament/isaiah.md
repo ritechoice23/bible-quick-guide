@@ -24,7 +24,7 @@ Prophetic Literature
 
 ### Author
 
-The book of Isaiah is attributed to the prophet Isaiah, who served as a spokesperson for God during the reigns of several kings of Judah. Isaiah's prophetic ministry spanned over several decades, and he is regarded as one of the major prophets in the Bible.
+The book of Isaiah is attributed to the prophet Isaiah.
 
 ### About the Author
 

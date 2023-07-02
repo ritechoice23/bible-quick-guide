@@ -40,7 +40,7 @@ In the cultural context of Mark, Judaism and Roman influence were prevalent. The
 
 ### The Event that Inspires the Writing of the Book
 
-The event that inspired the writing of the book of Mark was the life, ministry, death, and resurrection of Jesus Christ. Mark, being closely associated with the apostle Peter, desired to preserve and share Peter's firsthand accounts of Jesus' teachings and miracles. He sought to provide a written record that would strengthen the faith of believers and lead others to embrace Jesus as the Son of God and the Savior of humanity.
+The event that inspired the writing of the Book of Mark was the life, ministry, death, and resurrection of Jesus Christ. Mark, being closely associated with the apostle Peter, desired to preserve and share Peter's firsthand accounts of Jesus' teachings and miracles. He sought to provide a written record that would strengthen the faith of believers and lead others to embrace Jesus as the Son of God and the Savior of humanity.
 
 ### Major Outlines
 
@@ -51,9 +51,10 @@ The event that inspired the writing of the book of Mark was the life, ministry, 
 ### Major Characters
 
 1. Jesus Christ: The central figure of the Gospel, the Son of God, and the Savior of humanity.
-2. The Twelve Disciples: Chosen by Jesus to accompany Him
-
-, learn from His teachings, and spread the message of the kingdom. 3. John the Baptist: The prophet who prepared the way for Jesus' ministry and baptized Him. 4. Mary Magdalene: A devoted follower of Jesus who witnessed His crucifixion and resurrection. 5. Peter: One of Jesus' closest disciples, whose experiences and teachings are influential in Mark's Gospel.
+2. The Twelve Disciples: Chosen by Jesus to accompany Him, learn from His teachings and spread the message of the kingdom.&#x20;
+3. John the Baptist: The prophet who prepared the way for Jesus' ministry and baptized Him.&#x20;
+4. Mary Magdalene: A devoted follower of Jesus who witnessed His crucifixion and resurrection.&#x20;
+5. Peter: One of Jesus' closest disciples, whose experiences and teachings are influential in Mark's Gospel.
 
 ### Key Verses to be Memorized
 

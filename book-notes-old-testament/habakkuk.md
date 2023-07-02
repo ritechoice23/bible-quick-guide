@@ -53,9 +53,7 @@ The event that inspired the writing of the book of Habakkuk was the prevailing w
 
 ### Key Verses to be Memorized
 
-> "Though the fig tree may not blossom, nor fruit be on the vines; though the labor of the olive may fail, and the fields yield no food; though the flock may be cut off from the fold, and there be no herd in the stalls—yet I will rejoice in the Lord, I will joy in the God of my salvation." (Habakkuk 3:17-18
-
-)
+> "Though the fig tree may not blossom, nor fruit be on the vines; though the labor of the olive may fail, and the fields yield no food; though the flock may be cut off from the fold, and there be no herd in the stalls—yet I will rejoice in the Lord, I will joy in the God of my salvation." (Habakkuk 3:17-18)
 
 > "The Lord is in His holy temple. Let all the earth keep silence before Him." (Habakkuk 2:20)
 

@@ -55,9 +55,7 @@ The specific event that inspired the writing of 3 John is not mentioned within t
 
 ### Key Verses to be Memorized
 
-> "Beloved, thou doest faithfully whatsoever thou doest
-
-to the brethren, and to strangers." (3 John 1:5)
+> "Beloved, thou doest faithfully whatsoever thou doest to the brethren, and to strangers." (3 John 1:5)
 
 > "Beloved, follow not that which is evil, but that which is good. He that doeth good is of God: but he that doeth evil hath not seen God." (3 John 1:11)
 

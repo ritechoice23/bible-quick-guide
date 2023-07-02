@@ -24,11 +24,11 @@ Prophetic
 
 ### Author
 
-The book of Amos was written by the prophet Amos, who is considered one of the Minor Prophets in the Old Testament. Amos was a shepherd from Tekoa, a town in Judah. He was not a professional prophet but was chosen by God to deliver His messages to the northern kingdom of Israel. Amos's ministry focused on exposing the social injustices and religious hypocrisy prevalent in the society of his time.
+The book of Amos was written by the prophet Amos.
 
 ### About the Author
 
-Amos, a shepherd from Tekoa, was called by God to deliver His messages to the northern kingdom of Israel. Amos's prophecies address a specific historical context marked by social inequality, corruption, and spiritual decay. Despite his humble background, Amos fearlessly proclaimed God's message of judgment, calling the people to repentance and a return to justice and righteousness. His prophetic ministry lasted during the reigns of Jeroboam II in Israel and Uzziah in Judah.
+Amos is considered one of the Minor Prophets in the Old Testament. Amos was a shepherd from Tekoa, a town in Judah. He was not a professional prophet but a shepherd from Tekoa who was chosen by God to deliver His messages to the northern kingdom of Israel. Amos's ministry focused on exposing the social injustices and religious hypocrisy prevalent in the society of his time. Amos's prophecies address a specific historical context marked by social inequality, corruption, and spiritual decay. Despite his humble background, Amos fearlessly proclaimed God's message of judgment, calling the people to repentance and a return to justice and righteousness. His prophetic ministry lasted during the reigns of Jeroboam II in Israel and Uzziah in Judah.
 
 ### Historical Context
 
@@ -36,7 +36,7 @@ Amos prophesied during a time of relative prosperity in the northern kingdom of 
 
 ### Cultural Context
 
-The cultural context of Amos revolves around the religious practices and social norms of the northern kingdom of Israel. The people engaged in idolatry and empty religious rituals, while neglecting justice and righteousness. The society was characterized by social divisions, economic exploitation, and oppression. Amos challenged these cultural norms and called for a return to God's standards of justice, righteousness, and genuine worship.
+The cultural context of Amos revolves around the religious practices and social norms of the northern kingdom of Israel. The people engaged in idolatry and empty religious rituals while neglecting justice and righteousness. The society was characterized by social divisions, economic exploitation, and oppression. Amos challenged these cultural norms and called for a return to God's standards of justice, righteousness, and genuine worship.
 
 ### The Event that Inspires the Writing of the Book
 
@@ -50,9 +50,9 @@ The event that inspires the writing of the book of Amos is the divine call and c
 
 ### Major Characters
 
-1. Amos - The prophet chosen by God to deliver His messages of judgment and
-
-warning. 2. God - The divine authority who commissions Amos and proclaims judgment against Israel and the nations. 3. Israelite rulers and wealthy elites - Condemned for their oppression of the poor and their false worship practices.
+1. Amos - The prophet was chosen by God to deliver His messages of judgment and warning.&#x20;
+2. God - The divine authority who commissions Amos and proclaims judgment against Israel and the nations.&#x20;
+3. Israelite rulers and wealthy elites - Condemned for their oppression of the poor and their false worship practices.
 
 ### Key Verses to be Memorized
 

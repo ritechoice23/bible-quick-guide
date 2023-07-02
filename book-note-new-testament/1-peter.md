@@ -24,7 +24,7 @@ Epistle (Letter)
 
 ### The Author
 
-**Author:** Peter, the apostle
+Peter, the apostle
 
 ### About the Author
 
@@ -32,11 +32,11 @@ Peter, also known as Simon Peter or Cephas, was one of the twelve apostles chose
 
 ### Historical Context
 
-The epistle of 1 Peter was written during a time of increasing persecution against Christians in the Roman Empire. Believers were facing social ostracism, hostility, and even physical suffering due to their faith in Christ. Peter wrote to encourage and strengthen these suffering believers, reminding them of their identity in Christ and urging them to live as witnesses in a hostile world. He provided guidance on how to navigate their circumstances with faith, hope, and holy living.
+The Epistle of 1 Peter was written during a time of increasing persecution against Christians in the Roman Empire. Believers were facing social ostracism, hostility, and even physical suffering due to their faith in Christ. Peter wrote to encourage and strengthen these suffering believers, reminding them of their identity in Christ and urging them to live as witnesses in a hostile world. He provided guidance on how to navigate their circumstances with faith, hope, and holy living.
 
 ### Cultural Context
 
-1 Peter was written primarily to Gentile Christian communities in Asia Minor (modern-day Turkey) who were facing challenges in their society due to their faith. Peter draws on Old Testament imagery and language to address his readers, using concepts familiar to both Jewish and Gentile believers. He emphasizes the Christian virtues of love, humility, and submission while challenging cultural norms and expectations that conflicted with the teachings of Christ.
+1 Peter was written primarily for Gentile Christian communities in Asia Minor (modern-day Turkey) who were facing challenges in their society due to their faith. Peter draws on Old Testament imagery and language to address his readers, using concepts familiar to both Jewish and Gentile believers. He emphasizes the Christian virtues of love, humility, and submission while challenging cultural norms and expectations that conflict with the teachings of Christ.
 
 ### The Event that Inspires the Writing of the Book
 

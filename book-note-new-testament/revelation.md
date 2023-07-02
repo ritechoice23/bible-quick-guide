@@ -24,11 +24,11 @@ Apocalyptic Literature
 
 ### The Author
 
-**Author:** John the apostle
+John the Apostle
 
 ### About the Author
 
-John the apostle was one of the twelve disciples chosen by Jesus during His earthly ministry. He was known as the "disciple whom Jesus loved." After Jesus' ascension, John became a prominent leader in the early Christian community. He authored several New Testament books, including the Gospel of John, the three epistles of John, and the Book of Revelation. Tradition holds that John lived a long life, serving faithfully until his death.
+John the Apostle was one of the twelve disciples chosen by Jesus during His earthly ministry. He was known as the "disciple whom Jesus loved." After Jesus' ascension, John became a prominent leader in the early Christian community. He authored several New Testament books, including the Gospel of John, the three Epistles of John, and the Book of Revelation. Tradition holds that John lived a long life, serving faithfully until his death.
 
 ### Historical Context
 

@@ -44,14 +44,16 @@ The writing of Deuteronomy is inspired by the impending entrance of the Israelit
 
 ### Major Outlines
 
-1. Retelling of the Israelites' journey and God's faithfulness (Deuteronomy 1-4)
+1. A retelling of the Israelites' journey and God's faithfulness (Deuteronomy 1-4)
 2. Review of the Law and exhortation to obey God's commands (Deuteronomy 5-26)
-3. Blessings and curses, emphasize the consequences of obedience and disobedience (Deuteronomy 27-30)
+3. Blessings and curses emphasize the consequences of obedience and disobedience (Deuteronomy 27-30)
 4. Moses' final blessings, the appointment of Joshua, and his eventual passing (Deuteronomy 31-34)
 
 ### Major Characters
 
-1. Moses – The prophet and leader of the Israelites (Deuteronomy 1:1). 2. Joshua – Appointed by Moses as his successor to lead the Israelites into the Promised Land (Deuteronomy 31:7-8). 3. Aaron – Moses' brother and the first high priest of Israel (Deuteronomy 10:6).
+1. Moses – The prophet and leader of the Israelites (Deuteronomy 1:1).&#x20;
+2. Joshua – Appointed by Moses as his successor to lead the Israelites into the Promised Land (Deuteronomy 31:7-8).&#x20;
+3. Aaron – Moses' brother and the first high priest of Israel (Deuteronomy 10:6).
 
 ### Key Verses to be Memorized
 

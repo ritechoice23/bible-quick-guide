@@ -50,9 +50,11 @@ The writing of 1 Timothy was inspired by the need to address false teachings and
 
 ### Major Characters
 
-1. Paul -
-
-The Apostle and author of the letter (1 Timothy 1:1). 2. Timothy - A young disciple of Paul, serving as the overseer of the church in Ephesus (1 Timothy 1:2). 3. False teachers - Individuals promoting false teachings and engaging in disputes (1 Timothy 1:3-7). 4. Elders - Church leaders responsible for shepherding the flock and teaching sound doctrine (1 Timothy 3:1-7). 5. Widows - Women in the church who were in need of support and care (1 Timothy 5:3-16).
+1. Paul -The Apostle and author of the letter (1 Timothy 1:1).&#x20;
+2. Timothy - A young disciple of Paul, serving as the overseer of the church in Ephesus (1 Timothy 1:2).&#x20;
+3. False teachers - Individuals promoting false teachings and engaging in disputes (1 Timothy 1:3-7).&#x20;
+4. Elders - Church leaders responsible for shepherding the flock and teaching sound doctrine (1 Timothy 3:1-7).&#x20;
+5. Widows - Women in the church who were in need of support and care (1 Timothy 5:3-16).
 
 ### Key Verses to be Memorized
 
@@ -70,7 +72,7 @@ The Apostle and author of the letter (1 Timothy 1:1). 2. Timothy - A young disci
 2. Demonstrate godly character and integrity in leadership, setting an example for believers.
 3. Cultivate a life of prayer, seeking God's guidance, and relying on His strength.
 4. Show compassion and care for those in need, including widows and those who are marginalized.
-5. Persevere in faith, resisting worldly desires, and pursuing godliness.
+5. Persevere in faith, resist worldly desires, and pursue godliness.
 
 ### Test Your Knowledge
 
@@ -88,4 +90,4 @@ The Apostle and author of the letter (1 Timothy 1:1). 2. Timothy - A young disci
 
 ### Conclusion
 
-The book of 1 Timothy is a valuable resource for understanding the early Christian church's organization and the principles of godly leadership. It provides practical instructions for believers in various roles and addresses challenges faced by the church in Ephesus. As we study this letter, may we be inspired to uphold sound doctrine, demonstrate godly character, and persevere in faith, so that we may fulfill our roles in the church and live lives pleasing to God.
+The book of 1 Timothy is a valuable resource for understanding the early Christian church's organization and the principles of godly leadership. It provides practical instructions for believers in various roles and addresses challenges faced by the church in Ephesus. As we study this letter, may we be inspired to uphold the sound doctrine, demonstrate godly character, and persevere in faith, so that we may fulfill our roles in the church and live lives pleasing to God.

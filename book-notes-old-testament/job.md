@@ -10,7 +10,7 @@ The Book of Job is a profound and thought-provoking exploration of the nature of
 2. Position in the Old Testament: 18th book
 3. Number of chapters: 42
 4. Number of verses: 1,070
-5. Estimated date of writing: Between 6th and 4th centuries BC
+5. Estimated date of writing: Between the 6th and 4th centuries BC
 
 ### Genre
 
@@ -20,7 +20,7 @@ Wisdom Literature, specifically Wisdom Poetry
 
 1. Job, a blameless and upright man, faces severe trials and losses, challenging his faith and understanding of God's justice.
 2. Job engages in intense dialogues with his friends, who wrongly accuse him of sin and argue that his suffering is a result of divine punishment.
-3. In the end, God speaks to Job, revealing His incomprehensible wisdom and sovereignty, restoring Job's faith and blessing him abundantly.
+3. In the end, God speaks to Job, revealing His incomprehensible wisdom and sovereignty, restoring Job's faith, and blessing him abundantly.
 
 ### Author
 
@@ -52,9 +52,9 @@ The event that inspires the writing of the Book of Job is the profound suffering
 ### Major Characters
 
 1. Job - A righteous and wealthy man who experiences severe trials and suffers greatly.
-2. Eliphaz, Bildad, and Zophar - Job's
-
-friends who engage in dialogues with him, offering different explanations for his suffering. 3. Elihu - A young man who interrupts the dialogues to share his insights and understanding. 4. God - The divine protagonist who speaks to Job from a whirlwind, revealing His wisdom and sovereignty.
+2. Eliphaz, Bildad, and Zophar - Job's friends who engage in dialogues with him, offering different explanations for his suffering.&#x20;
+3. Elihu - A young man who interrupts the dialogues to share his insights and understanding.&#x20;
+4. God - The divine protagonist who speaks to Job from a whirlwind, revealing His wisdom and sovereignty.
 
 ### Key Verses to be Memorized
 

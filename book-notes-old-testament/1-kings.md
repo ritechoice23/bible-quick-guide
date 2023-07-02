@@ -28,7 +28,7 @@ Unknown, though traditionally attributed to the prophet Jeremiah or a group of p
 
 ### About the Author
 
-Solomon, the primary figure in 1 Kings, was the son of David and Bathsheba. He became king after David's death and is known for his wisdom, wealth, and construction of the Temple in Jerusalem. Despite his early devotion to God, Solomon's later years were marked by idolatry, leading to the division of the kingdom after his death.
+Jeremiah, the son of Hilkiah, was a priest from the town of Anathoth in the tribe of Benjamin. God called Jeremiah to be a prophet while he was still young. Jeremiah faced numerous challenges and opposition as he faithfully proclaimed God's messages of judgment and hope. He experienced personal rejection and suffering, yet remained steadfast in his commitment to God. The details of Jeremiah's death are not explicitly mentioned in the Bible.
 
 ### Historical Context
 

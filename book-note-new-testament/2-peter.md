@@ -2,7 +2,7 @@
 
 ### Introduction
 
-The second epistle of Peter, written by the apostle Peter, is a letter addressed to early Christian believers. It serves as a reminder of the truth of the gospel and warns against false teachers and their destructive teachings. Peter emphasizes the importance of spiritual growth, godly living, and the certainty of Christ's return. The letter encourages believers to remain steadfast in their faith and to be diligent in their pursuit of holiness.
+The second Epistle of Peter, written by the apostle Peter, is a letter addressed to early Christian believers. It serves as a reminder of the truth of the gospel and warns against false teachers and their destructive teachings. Peter emphasizes the importance of spiritual growth, godly living, and the certainty of Christ's return. The letter encourages believers to remain steadfast in their faith and to be diligent in their pursuit of holiness.
 
 ### Statistics
 
@@ -24,7 +24,7 @@ Epistle (Letter)
 
 ### The Author
 
-**Author:** Peter, the apostle
+Peter, the apostle
 
 ### About the Author
 
@@ -32,7 +32,7 @@ Peter, also known as Simon Peter or Cephas, was one of the twelve apostles chose
 
 ### Historical Context
 
-The epistle of 2 Peter was written during a time when false teachings and heresies were infiltrating the early Christian community. These false teachers promoted immoral behavior and denied the second coming of Christ. Peter wrote to remind the believers of the truth they had received and to warn them against the destructive influence of these false teachings. He sought to strengthen their faith and encourage them to stand firm in the face of opposition.
+The Epistle of 2 Peter was written during a time when false teachings and heresies were infiltrating the early Christian community. These false teachers promoted immoral behavior and denied the second coming of Christ. Peter wrote to remind the believers of the truth they had received and to warn them against the destructive influence of these false teachings. He sought to strengthen their faith and encourage them to stand firm in the face of opposition.
 
 ### Cultural Context
 
@@ -51,9 +51,7 @@ The specific event that inspired the writing of 2 Peter is not mentioned within 
 ### Major Characters
 
 1. Peter - The author of the letter, an apostle of Jesus Christ. (2 Peter 1:1)
-2. False Teachers - Individuals who spread false teachings and deny the truth of Christ's return. (2 Peter 2:
-
-1-3)
+2. False Teachers - Individuals who spread false teachings and deny the truth of Christ's return. (2 Peter 2:1-3)
 
 ### Key Verses to be Memorized
 

@@ -51,9 +51,11 @@ The writing of 2 Timothy was inspired by Paul's imminent martyrdom and his desir
 
 ### Major Characters
 
-1. Paul - The
-
-Apostle and author of the letter (2 Timothy 1:1). 2. Timothy - A faithful disciple and companion of Paul, entrusted with leadership responsibilities (2 Timothy 1:2). 3. Onesiphorus - A loyal friend and supporter of Paul during his imprisonment (2 Timothy 1:16-18). 4. False Teachers - Individuals promoting false teachings and causing division within the church (2 Timothy 2:17-18). 5. Alexander the Coppersmith - A prominent opponent of Paul and the gospel (2 Timothy 4:14-15).
+1. Paul - The Apostle and author of the letter (2 Timothy 1:1).&#x20;
+2. Timothy - A faithful disciple and companion of Paul, entrusted with leadership responsibilities (2 Timothy 1:2).&#x20;
+3. Onesiphorus - A loyal friend and supporter of Paul during his imprisonment (2 Timothy 1:16-18).&#x20;
+4. False Teachers - Individuals promoting false teachings and causing division within the church (2 Timothy 2:17-18).&#x20;
+5. Alexander the Coppersmith - A prominent opponent of Paul and the gospel (2 Timothy 4:14-15).
 
 ### Key Verses to be Memorized
 
@@ -69,7 +71,7 @@ Apostle and author of the letter (2 Timothy 1:1). 2. Timothy - A faithful discip
 
 1. Remain steadfast in the face of opposition and persecution, relying on God's power and love.
 2. Guard the truth and diligently study the Scriptures, allowing them to shape your beliefs and actions.
-3. Embrace the calling to share the gospel, to teach others, and to invest in the next generation of believers.
+3. Embrace the calling to share the gospel, teach others, and invest in the next generation of believers.
 4. Beware of false teachings and divisive individuals, standing firm on the foundation of sound doctrine.
 5. Persevere in faith, even in difficult circumstances, knowing that God's rewards await those who remain faithful.
 

@@ -24,15 +24,15 @@ The Book of Acts is primarily classified as a historical narrative. It presents 
 
 ### Author
 
-The Book of Acts is attributed to Luke, the same author of the Gospel of Luke. Luke was a physician and a close companion of the apostle Paul (Colossians 4:14, Philemon 1:24). He diligently researched and recorded the accounts of Jesus' life and ministry in his Gospel, and in Acts, he continues the narrative by chronicling the early years of the Christian church and Paul's missionary journeys.
+The Book of Acts is attributed to Luke, the same author of the Gospel of Luke.&#x20;
 
 ### About the Author
 
-Luke, the author of Acts, was a Gentile convert to Christianity. He was a beloved companion of the apostle Paul, accompanying him on various missionary journeys. Luke's meticulous attention to detail and his desire to provide an accurate and orderly account of the events of Jesus' life and the early church make his writings invaluable. Tradition suggests that Luke was a skilled physician, and his Gospel and Acts reflect his careful and methodical approach to recording historical events. He remained faithful to his calling as a disciple of Christ and is believed to have died as a martyr for his faith.
+Luke, the author of Acts, was a Gentile convert to Christianity. He was a beloved companion of the apostle Paul, accompanying him on various missionary journeys. Luke's meticulous attention to detail and his desire to provide an accurate and orderly account of the events of Jesus' life and the early church makes his writings invaluable. Tradition suggests that Luke was a skilled physician, and his Gospel and Acts reflect his careful and methodical approach to recording historical events. He remained faithful to his calling as a disciple of Christ and is believed to have died as a martyr for his faith.
 
 ### Historical Context
 
-Acts takes place immediately following the resurrection and ascension of Jesus Christ. It provides a historical account of the early Christian church and its rapid expansion. The book covers a period of approximately 30 years, from the ascension of Jesus to the apostle Paul's imprisonment in Rome. During this time, the Roman Empire exerted significant influence over the Mediterranean region, providing a diverse cultural backdrop for the spread of the gospel.
+Acts take place immediately following the resurrection and ascension of Jesus Christ. It provides a historical account of the early Christian church and its rapid expansion. The book covers a period of approximately 30 years, from the ascension of Jesus to the apostle Paul's imprisonment in Rome. During this time, the Roman Empire exerted significant influence over the Mediterranean region, providing a diverse cultural backdrop for the spread of the gospel.
 
 ### Cultural Context
 
@@ -40,9 +40,7 @@ The cultural context of Acts is marked by the presence of various religious, phi
 
 ### The Event that Inspires the Writing of the Book
 
-The primary event that inspired the writing of the Book of Acts was the outpouring of the Holy Spirit on the Day of Pentecost. This event marked the beginning of the fulfillment of
-
-Jesus' promise to send the Holy Spirit as a comforter and empower the disciples to be His witnesses (Acts 1:8). The remarkable manifestations of the Spirit's power, including speaking in tongues and bold preaching, stirred the curiosity of the people and led to the conversion of thousands.
+The primary event that inspired the writing of the Book of Acts was the outpouring of the Holy Spirit on the Day of Pentecost. This event marked the beginning of the fulfillment of Jesus' promise to send the Holy Spirit as a comforter and empower the disciples to be His witnesses (Acts 1:8). The remarkable manifestations of the Spirit's power, including speaking in tongues and bold preaching, stirred the curiosity of the people and led to the conversion of thousands.
 
 ### Major Outlines
 
@@ -79,15 +77,15 @@ Jesus' promise to send the Holy Spirit as a comforter and empower the disciples 
 
 ### Relation to Other Books of the Bible
 
-Acts serves as a bridge between the Gospels and the Epistles in the New Testament. It connects the life and ministry of Jesus presented in the Gospels with the teachings and letters of the apostles in the Epistles. It demonstrates the fulfillment of Jesus' mission and the establishment of the early Christian church, providing historical context and continuity for the teachings and doctrines found in the Epistles.
+Acts serve as a bridge between the Gospels and the Epistles in the New Testament. It connects the life and ministry of Jesus presented in the Gospels with the teachings and letters of the apostles in the Epistles. It demonstrates the fulfillment of Jesus' mission and the establishment of the early Christian church, providing historical context and continuity for the teachings and doctrines found in the Epistles.
 
 ### Life Application Lessons
 
 1. Empowerment through the Holy Spirit: Seek the empowering presence of the Holy Spirit in your life for bold witness and effective ministry.
 2. Faithfulness in Persecution: Take courage and remain faithful to Christ even in the face of opposition and persecution.
-3. God's Sovereign Guidance: Trust in God's sovereign guidance and leading, as
-
-He opens doors for mission and directs our paths. 4. Inclusion and Unity: Embrace the diversity of believers and strive for unity in the body of Christ, transcending cultural and social barriers. 5. The Power of Conversion: Recognize the transformative power of the gospel and the potential for lives to be changed through encounters with Jesus.
+3. God's Sovereign Guidance: Trust in God's sovereign guidance and leading, as He opens doors for our mission and directs our paths.&#x20;
+4. Inclusion and Unity: Embrace the diversity of believers and strive for unity in the body of Christ, transcending cultural and social barriers.&#x20;
+5. The Power of Conversion: Recognize the transformative power of the gospel and the potential for lives to be changed through encounters with Jesus.
 
 ### Test your Knowledge
 
@@ -101,7 +99,7 @@ He opens doors for mission and directs our paths. 4. Inclusion and Unity: Embrac
 
 1. Pray for a fresh outpouring of the Holy Spirit in your life, enabling you to be a bold witness for Christ.
 2. Pray for unity and love within the body of Christ, transcending divisions and embracing diversity.
-3. Pray for open doors and opportunities to share the gospel, both locally and globally, that many may come to know Jesus as their Lord and Savior.
+3. Pray for open doors and opportunities to share the gospel, both locally and globally, so that many may come to know Jesus as their Lord and Savior.
 
 ### Conclusion
 

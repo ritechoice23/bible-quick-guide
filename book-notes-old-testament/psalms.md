@@ -32,7 +32,7 @@ The authors of the Psalms were individuals who had a deep and personal relations
 
 ### Historical Context
 
-The Psalms were composed over a significant period, spanning several centuries. They reflect the experiences and faith of the people of Israel throughout their history. The psalms cover a wide range of historical contexts, including times of joy, triumph, repentance, exile, and restoration. They provide glimpses into the religious and cultural practices of ancient Israel and reveal the deep longing for communion with God in every season of life.
+The Psalms were composed over a significant period, spanning several centuries. They reflect the experiences and faith of the people of Israel throughout their history. The Psalms cover a wide range of historical contexts, including times of joy, triumph, repentance, exile, and restoration. They provide glimpses into the religious and cultural practices of ancient Israel and reveal the deep longing for communion with God in every season of life.
 
 ### Cultural Context
 
@@ -40,21 +40,19 @@ The Psalms are deeply rooted in the religious and cultural practices of ancient 
 
 ### The Event that Inspires the Writing of the Book
 
-The events that inspired the writing of the Psalms are numerous and varied. Each psalm arises from the personal experiences, joys, sorrows, and encounters with God that the authors went through. They express a desire to communicate with God, seek His guidance and deliverance, praise Him for His mighty acts, and find solace in His presence. The events that shaped the writing of the Psalms include victories in battle, moments of intense distress, times of national celebration, and personal reflections on the
-
-nature of God and His faithfulness.
+The events that inspired the writing of the Psalms are numerous and varied. Each psalm arises from the personal experiences, joys, sorrows, and encounters with God that the authors went through. They express a desire to communicate with God, seek His guidance and deliverance, praise Him for His mighty acts, and find solace in His presence. The events that shaped the writing of the Psalms include victories in battle, moments of intense distress, times of national celebration, and personal reflections on the nature of God and His faithfulness.
 
 ### Major Outlines
 
-1. Book 1: Psalms 1-41 - A collection of various psalms, including prayers for deliverance, expressions of trust in God, and reflections on the righteous and the wicked.
-2. Book 2: Psalms 42-72 - A compilation of psalms that explore themes of longing for God's presence, praise for His deliverance, and prayers for the king and the nation.
+1. Book 1: Psalms 1-41 - A collection of various Psalms, including prayers for deliverance, expressions of trust in God, and reflections on the righteous and the wicked.
+2. Book 2: Psalms 42-72 - A compilation of Psalms that explore themes of longing for God's presence, praise for His deliverance, and prayers for the king and the nation.
 3. Book 3: Psalms 73-89 - Psalms that focus on the sovereignty of God, His covenant faithfulness, and His righteous judgments.
-4. Book 4: Psalms 90-106 - A collection of psalms that reflect on the enduring nature of God, His works in creation and history, and His redemption of His people.
+4. Book 4: Psalms 90-106 - A collection of Psalms that reflect on the enduring nature of God, His works in creation and history, and His redemption of His people.
 5. Book 5: Psalms 107-150 - A diverse compilation of psalms, including hymns of praise, prayers of thanksgiving, and songs of ascent.
 
 ### Major Characters
 
-1. King David - A shepherd, warrior, and the second king of Israel. Known for his poetic and musical abilities, David authored many of the psalms.
+1. King David - A shepherd, warrior, and the second king of Israel. Known for his poetic and musical abilities, David authored many of the Psalms.
 2. Asaph - A musician and one of David's chief musicians. He composed several psalms that express praise and trust in God.
 3. The Sons of Korah - Descendants of the Levite Korah, they were a group of musicians and worship leaders who contributed to the psalm collection.
 4. Ethan the Ezrahite - A wise man who authored Psalm 89, reflecting on God's covenant with David and His faithfulness to His people.

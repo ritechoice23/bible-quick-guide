@@ -24,7 +24,7 @@ Prophetic, Apocalyptic
 
 ### Author
 
-The book of Ezekiel was written by the prophet Ezekiel, who served as a priest and was taken into exile to Babylon along with King Jehoiachin and many other Israelites. Ezekiel was called by God to be a prophet to the exiled Israelites, delivering messages of judgment, warning, and hope. His prophecies were recorded in this book to bring God's word to the people of Israel.
+The book of Ezekiel was written by the prophet Ezekiel.
 
 ### About the Author
 
@@ -32,7 +32,7 @@ Ezekiel, the son of Buzi, was a priest who was taken into exile to Babylon in 59
 
 ### Historical Context
 
-Ezekiel prophesied during the Babylonian exile, a time when the people of Judah were taken captive by the Babylonian empire. The book addresses the spiritual and moral condition of the exiled Israelites and the impending judgment upon Jerusalem. Ezekiel's prophecies reflect the historical events of the exile, the destruction of Jerusalem, and the desperate need for repentance and restoration.
+Ezekiel prophesied during the Babylonian exile, a time when the people of Judah were taken captive by the Babylonian empire. The book addresses the spiritual and moral condition of the exiled Israelites and the impending judgment upon Jerusalem. Ezekiel's prophecies reflect the historical events of exile, the destruction of Jerusalem, and the desperate need for repentance and restoration.
 
 ### Cultural Context
 

@@ -24,7 +24,7 @@ Prophetic
 
 ### Author
 
-The book of Nahum was written by the prophet Nahum, who was likely from the region of Elkosh. Not much is known about his personal background.
+The Book of Nahum was written by the prophet Nahum, who was likely from the region of Elkosh. Not much is known about his personal background.
 
 ### About the Author
 

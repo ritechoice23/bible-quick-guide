@@ -24,7 +24,7 @@ Prophetic Literature
 
 ### Author
 
-The book of Jeremiah is primarily attributed to the prophet Jeremiah, who was called by God to deliver messages to the people of Judah. Jeremiah's prophetic ministry spanned over several decades, and he is regarded as one of the major prophets in the Bible.
+The book of Jeremiah is primarily attributed to the prophet Jeremiah.
 
 ### About the Author
 

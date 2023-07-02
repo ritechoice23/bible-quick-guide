@@ -24,7 +24,7 @@ Epistle (Letter)
 
 ### The Author
 
-**Author:** John, the apostle
+John, the apostle
 
 ### About the Author
 
@@ -32,7 +32,7 @@ John, also known as John the Apostle or John the Evangelist, was one of the twel
 
 ### Historical Context
 
-The first epistle of John was written during a time when false teachings and challenges to orthodox Christian beliefs were prevalent. These false teachings often denied the humanity or divinity of Jesus Christ. John wrote to combat these false teachings, to encourage believers in their faith, and to assure them of the truth of the gospel. He emphasized the importance of abiding in Christ, walking in love, and having assurance of salvation.
+The first Epistle of John was written during a time when false teachings and challenges to orthodox Christian beliefs were prevalent. These false teachings often denied the humanity or divinity of Jesus Christ. John wrote to combat these false teachings, to encourage believers in their faith, and to assure them of the truth of the gospel. He emphasized the importance of abiding in Christ, walking in love, and having the assurance of salvation.
 
 ### Cultural Context
 
@@ -40,7 +40,7 @@ The first epistle of John was written during a time when false teachings and cha
 
 ### The Event that Inspires the Writing of the Book
 
-The specific event that inspired the writing of 1 John is not mentioned within the letter. However, John wrote to address the challenges and false teachings prevalent in the early Christian community. The letter serves as a call to love one another, to walk in the light of God's truth, and to have assurance of salvation through faith in Jesus Christ.
+The specific event that inspired the writing of 1 John is not mentioned within the letter. However, John wrote to address the challenges and false teachings prevalent in the early Christian community. The letter serves as a call to love one another, to walk in the light of God's truth, and to have the assurance of salvation through faith in Jesus Christ.
 
 ### Major Outlines
 
@@ -50,12 +50,10 @@ The specific event that inspired the writing of 1 John is not mentioned within t
 4. Testing the Spirits and Affirming the Deity of Christ (1 John 4)
 5. Belief in Jesus as the Son of God and Assurance of Eternal Life (1 John 5)
 
-### Major
+### Major Characters
 
-Characters
-
-1. John the Apostle: The author of the epistle, known for his close relationship with Jesus and his role as an eyewitness to Jesus' ministry.
-2. Believers: The recipients of John's letter, individuals from diverse backgrounds who had accepted Jesus Christ as their Savior.
+1. John the Apostle: The author of the Epistle, known for his close relationship with Jesus and his role as an eyewitness to Jesus' ministry.
+2. Believers: The recipients of John's letter, were individuals from diverse backgrounds who had accepted Jesus Christ as their Savior.
 
 ### Key Verses to be Memorized
 
@@ -71,7 +69,7 @@ Characters
 
 1. Embrace the reality of fellowship with God and walk in the light of His truth, confessing sins and experiencing His forgiveness and cleansing.
 2. Demonstrate genuine love for one another as evidence of being born of God and knowing Him.
-3. Abide in Christ, remaining in a close relationship with Him, and experience the assurance of salvation.
+3. Abide in Christ, remain in a close relationship with Him, and experience the assurance of salvation.
 4. Test the spirits and hold fast to the truth, affirming the deity of Jesus Christ and discerning false teachings.
 5. Believe in Jesus as the Son of God and live with the assurance of eternal life, grounded in faith and love for God and others.
 
@@ -91,4 +89,4 @@ Characters
 
 ### Conclusion
 
-The first epistle of John encourages believers to walk in the light of God's truth, to love one another, and to have assurance of salvation. It addresses the challenges of false teachings, emphasizes the importance of genuine love, and affirms the deity of Jesus Christ. As we study this letter, let us strive to abide in Christ, love one another, and live out our faith with confidence, knowing that we are born of God and have eternal life in Him.
+The first epistle of John encourages believers to walk in the light of God's truth, to love one another, and to have the assurance of salvation. It addresses the challenges of false teachings, emphasizes the importance of genuine love, and affirms the deity of Jesus Christ. As we study this letter, let us strive to abide in Christ, love one another, and live out our faith with confidence, knowing that we are born of God and have eternal life in Him.

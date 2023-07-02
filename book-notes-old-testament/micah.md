@@ -50,11 +50,9 @@ The event that inspired the writing of the book of Micah was the prevalent corru
 
 ### Major Characters
 
-1. Micah: The prophet chosen by God to deliver His messages to Israel and Judah. (Micah 1:1)
+1. Micah: The prophet was chosen by God to deliver His messages to Israel and Judah. (Micah 1:1)
 2. False prophets: Those who deceived the people with false messages and led them astray. (Micah 2:11)
-3. Rulers and officials: The leaders who were responsible for the social injustice and corruption in society.
-
-(Micah 3:1-3)
+3. Rulers and officials: The leaders who were responsible for the social injustice and corruption in society. (Micah 3:1-3)
 
 ### Key Verses to be Memorized
 
